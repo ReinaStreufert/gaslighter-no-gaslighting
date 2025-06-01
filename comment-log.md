@@ -1,3 +1,33 @@
+> 6/1/2025 12:38:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0t7r7/whats_your_best_npc_outfit/mvfuei0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0t7r7/whats_your_best_npc_outfit/mvftb4i)
+
+duncan?
+
+> 6/1/2025 12:37:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0t6sf/whats_one_small_thing_that_instantly_ruins_your/mvfu7x1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0t6sf/whats_one_small_thing_that_instantly_ruins_your/mvftf7o)
+
+please stop trying to trick hayley into believing you're being clever, we both know what you're doing
+
+> 6/1/2025 12:36:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfu18t) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvftbpp)
+
+I love how when I pointed out that feeling the need to downvote the comments you don't like how they read untouched is only embarrassing yourself, you just started embarrassing yourself even more
+
+> 6/1/2025 12:35:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvftujw) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvftbpp)
+
+no, Sam, please actually seek help
+
+you have anxiety. really, really badly. get help for it please
+
+> 6/1/2025 12:33:32 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvftink) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfs7o7)
+
+sam you know nothing about reddit, or about programming. why do you think someone would write a bot to do...this
+
+there are no bots like you're talking about on reddit
+
+I think are used to allllll the way back when you very first started doing this, where comments like this would upset me. now, they are dead giveaways of who I am talking to , because only you act this much like a troll 
+
+it really is main character syndrome irl. Sam you have dedicated your life to *trolling me*. literally. that's what you waste all of your time and energy on
+
+I feel like the belle of the ball...
+
 > 6/1/2025 12:26:57 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfs83e) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfs1ul)
 
 &gt; maybe you suffer from paranoia?get well soon♥️
