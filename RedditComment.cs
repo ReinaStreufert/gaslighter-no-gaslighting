@@ -7,7 +7,7 @@ namespace gaslighter_no_gaslighting
     {
         public static RedditComment FromApiJson(JObject apiJson)
         {
-            var id = apiJson["name"]!.ToString().Split('_')[1];
+            var id = apiJson["id"]!.ToString();
             var threadPermalink = new Uri(apiJson["link_permalink"]!.ToString());
             var permalink = new Uri(threadPermalink, id);
             var threadTitle = apiJson["link_title"]!.ToString();
@@ -16,8 +16,8 @@ namespace gaslighter_no_gaslighting
             if (parentId != null)
                 parentPermalink = new Uri(threadPermalink, parentId);
             var creationTime = DateTime.UnixEpoch.AddSeconds((int)apiJson["created_utc"]!);
-            var bodyHTML = apiJson["body_html"]!.ToString();
-            return new RedditComment(id, permalink, threadPermalink, parentPermalink, creationTime, threadTitle, bodyHTML);
+            var body = apiJson["body"]!.ToString();
+            return new RedditComment(id, permalink, threadPermalink, parentPermalink, creationTime, threadTitle, body);
         }
 
         public static RedditComment Deserialize(JObject json)
@@ -30,8 +30,8 @@ namespace gaslighter_no_gaslighting
                 parentPermalink = new Uri(json["parentPermalink"]!.ToString());
             var creationTime = DateTime.UnixEpoch.AddSeconds((int)json["creationTime"]!);
             var threadTitle = json["threadTitle"]!.ToString();
-            var bodyHTML = json["bodyHTML"]!.ToString();
-            return new RedditComment(id, permalink, threadPermalink, parentPermalink, creationTime, threadTitle, bodyHTML);
+            var body = json["body"]!.ToString();
+            return new RedditComment(id, permalink, threadPermalink, parentPermalink, creationTime, threadTitle, body);
         }
 
         public string Id { get; }
@@ -40,9 +40,9 @@ namespace gaslighter_no_gaslighting
         public Uri? ParentPermalink { get; }
         public DateTime CreationTime { get; }
         public string ThreadTitle { get; }
-        public string BodyHTML { get; }
+        public string Body { get; }
 
-        private RedditComment(string id, Uri permalink, Uri threadPermalink, Uri? parentPermalink, DateTime creationTime, string threadTitle, string bodyHTML)
+        private RedditComment(string id, Uri permalink, Uri threadPermalink, Uri? parentPermalink, DateTime creationTime, string threadTitle, string body)
         {
             Id = id;
             Permalink = permalink;
@@ -50,7 +50,7 @@ namespace gaslighter_no_gaslighting
             ParentPermalink = parentPermalink;
             CreationTime = creationTime;
             ThreadTitle = threadTitle;
-            BodyHTML = bodyHTML;
+            Body = body;
         }
 
         public JObject Serialize()
@@ -62,19 +62,16 @@ namespace gaslighter_no_gaslighting
                 { "threadPermalink", ThreadPermalink.ToString() },
                 { "creationTime", (int)Math.Round((CreationTime - DateTime.UnixEpoch).TotalMilliseconds) },
                 { "threadTitle", ThreadTitle },
-                { "bodyHTML", BodyHTML }
+                { "body", Body }
             };
             if (ParentPermalink != null)
                 obj.Add("parentPermalink", ParentPermalink.ToString());
             return obj;
         }
 
-        /*public XmlElement Render(XmlDocument document)
+        public string RenderMD()
         {
-            var commentElement = document.CreateElement("div");
-            commentElement.SetAttribute("class", "comment");
-            var paragraphElement = document.CreateElement("p");
-            paragraphElement.InnerXml = $"<b>{CreationTime} / <a href=\"{Permalink}\"></a></b>";
-        }*/
+            return $"> [{CreationTime}]({Permalink})\n\n{Body}";
+        }
     }
 }

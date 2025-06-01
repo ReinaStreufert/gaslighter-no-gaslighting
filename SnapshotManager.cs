@@ -12,42 +12,34 @@ namespace gaslighter_no_gaslighting
 {
     public class SnapshotManager
     {
-        public SnapshotManager(string historyJsonPath, string targetUsername, string htmlTemplatePath, string htmlOutputPath, string cookieHeader)
+        public SnapshotManager(string historyJsonPath, string mdOutputPath)
         {
             _HistoryJsonPath = historyJsonPath;
-            _TargetUsername = targetUsername;
-            //_HtmlTemplate = File.ReadAllText(htmlTemplatePath);
-            _HtmlOutputPath = htmlOutputPath;
-            var cookieContainer = new CookieContainer();
-            cookieContainer.SetCookies(new Uri("https://api.reddit.com"), cookieHeader);
-            _Http = new HttpClient(new HttpClientHandler { CookieContainer = cookieContainer });
+            _MDlOutputPath = mdOutputPath;
         }
 
         private List<RedditComment> _History = new List<RedditComment>();
-        private HttpClient _Http = new HttpClient();
         private string _HistoryJsonPath;
-        private string _TargetUsername;
-        private string _HtmlTemplate;
-        private string _HtmlOutputPath;
+        private string _MDlOutputPath;
 
-        public async Task SnapshotRoutineAsync(TimeSpan refreshInterval)
+        public void IncludeSnapshot(JObject latestSnapshot)
         {
-            for (; ;)
-            {
-                LoadHistory();
-                await AcquireNewComments();
-                SaveHistory();
-                RenderHTML();
-                await Task.Delay(refreshInterval);
-            }
+            LoadHistory();
+            var latestStoredComment = _History.Count > 0 ? _History[0] : null;
+            var latestComments = latestSnapshot["data"]!["children"]!
+                .Select(t => t["data"]!)
+                .Cast<JObject>()
+                .Select(RedditComment.FromApiJson)
+                .TakeWhile(c => c.Id != latestStoredComment?.Id);
+            _History.InsertRange(0, latestComments);
+            SaveHistory();
+            RenderMD();
         }
 
-        private void RenderHTML()
+        private void RenderMD()
         {
-            /*var document = new XmlDocument();
-            document.LoadXml(_HtmlTemplate);
-            var historyElement = document.GetElementById("history");
-            */
+            var text = string.Join("\n\n", _History.Select(c => c.RenderMD()));
+            File.WriteAllText(_MDlOutputPath, text);
         }
 
         private void SaveHistory()
@@ -69,14 +61,6 @@ namespace gaslighter_no_gaslighting
                     .Cast<JObject>()
                     .Select(RedditComment.Deserialize));
             }
-        }
-
-        private async Task AcquireNewComments()
-        {
-            var latestStoredComment = _History.Count > 0 ? _History[0] : null;
-            var latestComments = (await ApiReader.GetLatestComments(_Http, _TargetUsername))
-                .TakeWhile(c => c.Id != latestStoredComment?.Id);
-            _History.InsertRange(0, latestComments);
         }
     }
 }

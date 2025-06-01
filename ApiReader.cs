@@ -11,7 +11,7 @@ namespace gaslighter_no_gaslighting
     {
         public static async Task<IEnumerable<RedditComment>> GetLatestComments(HttpClient httpClient, string username)
         {
-            var responseText = await httpClient.GetStringAsync($"http://api.reddit.com/user/{username}/comments");
+            var responseText = await httpClient.GetStringAsync($"https://api.reddit.com/user/{username}/comments");
             var responseJson = JObject.Parse(responseText);
             return responseJson["data"]!["children"]!
                 .Cast<JObject>()
