@@ -1,3 +1,101 @@
+> 6/1/2025 1:49:41 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdcyup) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdbg51)
+
+I find it so funny that every time I tell Sam to go to sleep she internally cries because she knows to be consistent she has to then say "okay so I have to stay up bc she's gonna, she's gonna do something, sketchy tonight"
+
+Sam don't you wanna take a nap. confess to hayley
+
+> 6/1/2025 1:47:58 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdcs20) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdc0a7)
+
+oh wait, this was about parenting. sorry Sam I didn't know you had such strong opinions about fatherhood 
+
+at first I thought this was the comment about the banjo collection
+
+> 6/1/2025 1:46:16 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdcl6w) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdc0a7)
+
+go off sam, sorry I didn't know about your banjo collection
+
+> 6/1/2025 1:45:04 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdcghj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdbq1s)
+
+sam I'm just gonna pretend were having a conversation 
+
+okay, gross, I don't know why you think anyone should do that that's disgusting. what I said was you *wouldn't* suggest that, which is a fact, because you are transphobic
+
+hayley is not transphobic, so you must have told lies to them, and told them I made up details about my transition.
+
+you are screwed come monday morning. I could not be happier about it. you tried to trap hayley now no one's ever gonna wanna be your friend again bc everyone's gonna know how horrible of a person you are.you should really go to sleep, stop posting on reddit and enjoy some quality time with your friends while they still like you
+
+> 6/1/2025 1:39:58 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdbvsk) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdb6m0)
+
+I don't collect anything? this is just so weird. why are you unable to accept that my hobbies are what they are. they are not hard to believe to anybody I met but you sam
+
+> 6/1/2025 1:39:05 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdbs94) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdb71d)
+
+do you remember how I said that deciding to raise a child is a morally terrible thing to do
+
+> 6/1/2025 1:38:20 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdbp94) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdb56b)
+
+sam what the fuck are you talking about
+
+> 6/1/2025 1:37:43 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdbmqk) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdb641)
+
+holy fuck this is so unrealistically disgusting. Sam it's like satire, you're not even trying
+
+> 6/1/2025 1:36:06 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdbg51) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdaztk)
+
+sam reddit doesn't give you notifications when people reply to themselves replying to you. go to sleep
+
+> 6/1/2025 1:34:31 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdb9ne) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdb3v4)
+
+why do you think trans girls are creeps, sam
+
+> 6/1/2025 1:33:04 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdb3v4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvd9ld9)
+
+oh it's not transphobic ? so you would have suggested I masturbate to pictures of my friends, if I were a cis girl ?
+
+> 6/1/2025 1:32:01 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0h3kp/whats_something_that_made_your_heart_skip_a_beat/mvdaznd) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0h3kp/whats_something_that_made_your_heart_skip_a_beat/mvda4kj)
+
+and hayley im writing this despite that hopefully nothing I wrote will ever end up mattering whatsoever but it's also relevant just to say that all of the trauma you have had from people who were drunk, were already capable of those things in a way most people are not and ik that because there is no intoxication on anything that would cause me to be abusive
+
+> 6/1/2025 1:24:28 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0h3kp/whats_something_that_made_your_heart_skip_a_beat/mvda4kj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0h3kp/whats_something_that_made_your_heart_skip_a_beat/mvda2uo)
+
+but still alcoholism is the most realistic by far of everything you have ever suggested on reddit /gen
+
+> 6/1/2025 1:24:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0h3kp/whats_something_that_made_your_heart_skip_a_beat/mvda2uo) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0h3kp/whats_something_that_made_your_heart_skip_a_beat/mvd9m07)
+
+my parents don't drink
+
+nearly every time I have ever been drunk, it was with you at your house sam
+
+> 6/1/2025 1:23:14 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gzhn/whats_something_that_should_never_be_combined_but/mvd9zi9) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gzhn/whats_something_that_should_never_be_combined_but/mvd918z)
+
+that sounds good
+
+> 6/1/2025 1:22:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvs3/whats_a_seemingly_insignificant_decision_you_made/mvd9ut7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvs3/whats_a_seemingly_insignificant_decision_you_made/mvd8in4)
+
+sam I get that you're writing things that make no sense on purpose but you're over shooting it. nobody thinks things that make this little sense
+
+> 6/1/2025 1:20:10 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvd9mw0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvd9ld9)
+
+I thought girls didn't turn me on sam
+
+> 6/1/2025 1:19:48 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvd9ld9) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvd7w11)
+
+you are so fucking transphobic
+
+> 6/1/2025 1:18:29 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvd9fqm) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvd992p)
+
+you tried?
+
+what are you referring to. the fact that you tried to trick me just now?
+
+or are you about to start breaking down and finally confessing to what you did because you know it's already failed ...
+
+> 6/1/2025 1:13:40 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd8vge) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd80y2)
+
+also apparently people love to downvote me and then remove their downvotes later for no reason 
+
+etcetcetc you get the point. I miss you Hayley ilysm
+
 > 6/1/2025 1:06:28 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd80y2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd7v6i)
 
 anyway apparently the last few days it's been "nobody on reddit respond to any of your replies" day? how come suddenly people reply now ? it's almost as though everybody is sam
