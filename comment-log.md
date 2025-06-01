@@ -1,3 +1,35 @@
+> 6/1/2025 4:44:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0xooa/whats_the_worst_noises_you_can_hear_out_of_your/mvh7ppj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0xooa/whats_the_worst_noises_you_can_hear_out_of_your/1l0xooa)
+
+sam no one on all of reddit would ever respond to this post. every comment in this thread is you. every upvote is you. its all you. its like the truman show. and the fact youre still pretending for hayley is so disturbing and weird
+
+> 6/1/2025 4:43:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ynd0/which_planet_are_we_most_likely_to_conquer_first/mvh7i71) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ynd0/which_planet_are_we_most_likely_to_conquer_first/1l0ynd0)
+
+who fucking cares at all
+
+when the fuck have i ever referred to anything about conquering planets?
+
+how hard is it for you to understand that programming is not mutually exclusive with all of these random traits you personally associate it with
+
+> 6/1/2025 4:41:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0yzid/whats_a_food_you_hated_as_a_kid_but_love_now/mvh76ba) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0yzid/whats_a_food_you_hated_as_a_kid_but_love_now/1l0yzid)
+
+sam everyone deals with different issues, just because you dont understand something doesnt mean its my fault. i have sensory issues that should be enough for you to shut up about this
+
+> 6/1/2025 4:39:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0z221/if_passionately_kissing_trump_for_5_minutes_meant/mvh6qzx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0z221/if_passionately_kissing_trump_for_5_minutes_meant/1l0z221)
+
+what? sam are you trying to resort to traps that involve paying me literally millions of dollars to force myself to kiss a guy ? you are only admitting that you already know i am a lesbian...
+
+right now you couldnt pay me any amount of money to kiss anyone but hayley
+
+> 6/1/2025 4:36:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ruto/whats_the_worst_movie_youve_ever_watched_in_your/mvh68e6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ruto/whats_the_worst_movie_youve_ever_watched_in_your/1l0ruto)
+
+why, why do you think this is a good idea
+
+what lyric am i apparently hearing every day about movies. what did i say about movies. what did i do that is causing this to happen to me
+
+> 6/1/2025 4:35:30 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0yvtf/what_way_did_your_childhood_trauma_change_you/mvh6107) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0yvtf/what_way_did_your_childhood_trauma_change_you/mvh58oq)
+
+"cultivated an obsession" lose the thesaurus sam
+
 > 6/1/2025 1:41:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvg7aey) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvg4la3)
 
 hey sam when is the rest time you had a glass of water ? d
