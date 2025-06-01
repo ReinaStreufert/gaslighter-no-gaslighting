@@ -812,3 +812,461 @@ sam you are such a gaslighter it's unbelievable. I sent Hayley this and you said
 > 5/31/2025 11:22:17 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kzuv35/whats_a_habit_you_picked_up_and_never_dropped/mv9al9s) / [Context](https://www.reddit.com/r/AskReddit/comments/1kzuv35/whats_a_habit_you_picked_up_and_never_dropped/mv89hsc)
 
 sam you are definitely the only one who does that ...why do you think writing freakishly specific things makes sense. it's disturbing it feels like you really don't understand how the real world works. what you're doing is like trying to guess random facts about the lives of strangers you are pointing at on the street. and I mean that extremely literally as what on earth could I have said that would be a hint towards this being a habit of mine ? I only keep bringing this up because I feel like it needs citations. these are the kinds of things that lead me me to say you "are actually stupid"
+
+> 5/29/2025 11:54:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyu9u4/what_reasons_would_justify_dating_someone_half/mv0cysv) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyu9u4/what_reasons_would_justify_dating_someone_half/mv09jhh)
+
+you are a gaslighter. a literal fucking gaslighter , sam.
+
+you are only showing how obviously malicious your intents are. youre not even trying anymore.
+
+> 5/29/2025 11:08:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyto6s/whats_something_super_minor_that_can_instantly/mv0681r) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyto6s/whats_something_super_minor_that_can_instantly/mv04tdi)
+
+holy shit you seriously are purposefully being unrealistic? am i crazy? you cant be this terrible at this?
+
+> 5/29/2025 10:48:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kysxi2/what_are_signs_that_a_person_genuinely_is/mv032az) / [Context](https://www.reddit.com/r/AskReddit/comments/1kysxi2/what_are_signs_that_a_person_genuinely_is/muzyqvy)
+
+hayley can you require that sam make a citation to something real I actually said for every comment she makes?
+
+> 5/29/2025 10:36:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kysxh0/whats_something_youve_accidentally_said_that/mv013ex) / [Context](https://www.reddit.com/r/AskReddit/comments/1kysxh0/whats_something_youve_accidentally_said_that/muzzgbn)
+
+what is happening
+
+sam please stop gaslighting hayley I don't know why you hate me so much I could pick anything you tried to say about me here and it would be so much worse than anything I ever said about you or did to you. I care about Hayley so much I swear please just stop please I hate you so much
+
+> 5/29/2025 10:16:38 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kys4zx/whats_something_you_dont_talk_about_much_but/muzxtvf) / [Context](https://www.reddit.com/r/AskReddit/comments/1kys4zx/whats_something_you_dont_talk_about_much_but/1kys4zx)
+
+sam spending hours thinking of her best re-wordings of "what's your dirtiest secret that would make everybody see you differently"
+
+this question is slightly broader though. this isn't a secret it's just something i can't really talk about. bc I don't wanna talk dirty to a wall, tbh. that is one of the many reasons you want to keep me and Hayley from communicating. but my actual answer to this is sex w hayley 
+
+can I just say that the answers you wrote are just. Sam can we make a rule ? if you're supposedly trying to find my "secret account" then shouldn't you be posting about things related to things I said ? how about you can only do that.can you please explain to me how "finances" are related to anything I have ever expressed an interest in ? also, who the fuck , other than accountants, think about finances every single day ? I feel like the further this goes on, you have gotten less and less and less realistic. it's kind of insulting. to both me and hayley. I don't know what lies you told them to make them afraid to talk to me but sooner or later they are going to realize everything you say about me is malicious...
+
+> 5/29/2025 10:06:26 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kysmts/whats_a_movie_you_think_deserves_a_second_chance/muzw2mh) / [Context](https://www.reddit.com/r/AskReddit/comments/1kysmts/whats_a_movie_you_think_deserves_a_second_chance/1kysmts)
+
+omg why is this happening what did I say about movies
+
+> 5/29/2025 9:55:59 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyrdnv/what_movie_ending_hurt_you_so_much_you_swore_youd/muzu8ok) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyrdnv/what_movie_ending_hurt_you_so_much_you_swore_youd/1kyrdnv)
+
+sam what is happening. to be honest, I've watched way less movies then most people have. definitely way less than you bc holy fuck you expect me to know a lot of movies. anyway I don't know literally any of these movies. we like the same movies sam, if I had to pick a movie to watch from movies I already know , I would go to a marvel movie ...
+
+> 5/29/2025 9:45:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyrqiy/whats_your_worst_regret/muzsduy) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyrqiy/whats_your_worst_regret/muzoxag)
+
+you are hella manipulative.this came from nowhere, other than you randomly suggesting things that you know would make hayley feel insecure. I lost feelings for morrigan very shortly after I broke up with them. morrigan took testosterone and grew facial hair and now I am not even attracted to them physically bc I'm a lesbian.
+
+also you are gaslighting hayley to suggest I would fucking *ever* tell someone I love them while , writing crap like this on reddit??? what the fuck sam . you don't have dementia you know who I am
+
+also why the fuck, why, why, why, why, literally WHY do all of your avatars have beards and mustaches and shit ??? since when the FUCK have I had facial hair that shit makes me feel dysphoric as fuck and makes me want to vomit at the thought of it
+
+it is just so damn unnecessary and I told you I dislike it but you hate me
+
+> 5/29/2025 9:33:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyrn7j/adults_of_reddit_whats_something_you_still_do/muzq53a) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyrn7j/adults_of_reddit_whats_something_you_still_do/1kyrn7j)
+
+yikes. well I was talking to hayley and you decided to intrude on my conversation and apply your icky world view to what I was talking about. the last time I cooked was when I cooked either for or with morrigan when they would come over or I would go to their house. I don't mind cooking for other people...more importantly, nothing on this entire thread that you have written applies to me. literally not a single one out of everything you wrote...I don't even know that this is gaslighting so much as it is your real life icky stereotype-locked world view
+
+actually there is one. I do like bubbles. but not because they make me feel like a child. because they're bubbles. holy fuck sam let people enjoy things
+
+> 5/29/2025 8:14:10 PM [Permalink](https://www.reddit.com/r/ShittySysadmin/comments/1kyn64n/new_female_joined_compliance_team_how_do/muzcfks) / [Context](https://www.reddit.com/r/ShittySysadmin/comments/1kyn64n/new_female_joined_compliance_team_how_do/1kyn64n)
+
+read. the fucking. username.
+
+you are so goddamn transphobic. it's fucking insane sam. what the fuck. what is WRONG with you. you are SO transphobic you're such a FUCKING NIGHTMARE. you use the fact that I write code related to my musical projects because it's really fun and I enjoy doing it, to invalidate my entire fucking gender identity. which is beyond transphobic in addition to sexist if you knew a damn thing about anything you're talking about you would know all the first programmers were women. this shit is so fucking blatantly gaslighting hayley, you have written some of the most disgusting shit I have literally ever seen on this app and said "reina likes programming.......read this" holy shit what is wrong with you I don't feel bad for you I do not I take that shit back you are a goddamn nightmare you are on of the worst people I have ever met I didn't know there was such a thing as being so emotionally abusive.
+
+> 5/29/2025 8:03:38 PM [Permalink](https://www.reddit.com/r/mbti/comments/1ky0e5e/some_random_entp_and_intj_friendships/muzalwl) / [Context](https://www.reddit.com/r/mbti/comments/1ky0e5e/some_random_entp_and_intj_friendships/1ky0e5e)
+
+when did I talk about personality tests ? that sounds like something you would be more interested in sam, because you like to perceive the world in terms of static labels and stereotypes 
+
+hayley, she couldn't be more inauthentic. if you were gonna help your friend catfish someone would you do it by talking about things they have never said anything remotely related to before?
+
+also, sam you are so weirdly obsessed with putting anime everywhere. I can tell you think anime is cringey. but is that like a personality trait of yours ? bc I have never watched anime in my life so that's only coming from you
+
+> 5/29/2025 7:53:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kypwq0/how_would_you_feel_if_someone_called_you_their/muz8t9v) / [Context](https://www.reddit.com/r/AskReddit/comments/1kypwq0/how_would_you_feel_if_someone_called_you_their/muz87y8)
+
+what does that mean? where did you learn that word ?
+
+> 5/29/2025 7:32:19 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyoqqb/what_is_something_you_will_always_hate_no_matter/muz4zwb) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyoqqb/what_is_something_you_will_always_hate_no_matter/muz1stx)
+
+you are an actual fucking monster. i goddamn mean it.
+
+> 5/29/2025 7:13:57 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyof4p/what_would_your_younger_self_be_surprised_to_know/muz1mph) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyof4p/what_would_your_younger_self_be_surprised_to_know/muywiiy)
+
+sam I am twenty years old
+
+what is even happening right now. there is no such thing as a twenty year old who would tell their younger self that. I am not even interpreting this from a pov other than you don't even suggest things that make any sense, that's how I know for a fact the only condition they meet is "gives you a visceral reaction while you read it"
+
+if this is supposed to be your jump from me saying I tried to kill myself because of my bpd, sam, you aren't dumb, that's not even close to what I wrote. I wrote that I wanted to kill myself since I knew suicide was a possibility, and tried many many times, then I met Hayley, and the next time I tried to kill myself again was after I thought I wouldn't know Hayley anymore. that is not very hard to understand. "severely suicidal person was suicidal most of the time except for the best times of her life she's ever been in." one of your disgusting characters is just like an impersonation of ted mosby. read the username please
+
+> 5/29/2025 7:03:07 PM [Permalink](https://www.reddit.com/r/frederickmd/comments/1kv9fin/what_the_heck/muyznnr) / [Context](https://www.reddit.com/r/frederickmd/comments/1kv9fin/what_the_heck/mu7sqxa)
+
+oh there's a hotel nearby. I bet somebody probably was planning on meeting up to have sex with a prostitute to cheat, and then when the prostitute didn't show, they were sooooo so so upset that they ran their car into a wall
+
+the maryland school for the deaf is suspiciously close by. they offer public education at no cost to deaf people.now what if. you don't think. that somebody who wasn't deaf, might end up pretending to be in order to get a free education, do you ? because that seems exactly like the kind of person that would be spending their extra saved up money on prostitutes, and crashing their cars into walls. I think the police should be questioning if this person was a student there. if so, they should be interrogating them to try and figure out whether or not they're truly deaf. but oh no, the only way to find out for a fact is to read their mind. oh fuck
+
+I could probably do a better job if I actually knew anything about this situation
+
+> 5/29/2025 6:51:01 PM [Permalink](https://www.reddit.com/r/frederickmd/comments/1kv9fin/what_the_heck/muyxfuo) / [Context](https://www.reddit.com/r/frederickmd/comments/1kv9fin/what_the_heck/1kv9fin)
+
+what a strange event. there's probably some type of elaborate conspiracy surrounding this, don't you think ?
+
+> 5/29/2025 6:25:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muysq6s) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muysj6o)
+
+and don't worry hayley I saw before you either got rid of it or she tried to "silence" you ...
+
+> 5/29/2025 6:24:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muysj6o) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muyseoc)
+
+I wish you would confess. but like I said, if anything is obvious to me at this point, it's that the more guilt you feel the harder you try to cover up what you did
+
+> 5/29/2025 6:23:24 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muyseoc) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muys7l3)
+
+I see that comment made you quite upset sam
+
+> 5/29/2025 6:23:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muyscje) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muysatk)
+
+ten karma
+
+> 5/29/2025 6:22:43 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muysa5y) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muys7l3)
+
+six karma
+
+> 5/29/2025 6:22:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynmye/are_you_pro_choice_or_pro_life_and_if_so_why/muys686) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynmye/are_you_pro_choice_or_pro_life_and_if_so_why/muyryps)
+
+I think sam has a tendency to forget she's supposed to be pretending she believes in her own conspiracies
+
+> 5/29/2025 6:21:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynmye/are_you_pro_choice_or_pro_life_and_if_so_why/muyryps) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynmye/are_you_pro_choice_or_pro_life_and_if_so_why/muypzpd)
+
+I thought I didn't like sex with girls ?
+
+> 5/29/2025 6:19:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/muyrmc5) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynfad/exbullys_what_was_your_biggest_regret/1kynfad)
+
+you are a liar and a gaslighter. and you attempt to be a bully towards me on here constantly. you were meaner to me about certain specific things than anyone has ever been in my whole life.
+
+read the username
+
+> 5/29/2025 6:06:52 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kynce1/how_do_you_feel_todayhow_was_your_day_serious/muypb6g) / [Context](https://www.reddit.com/r/AskReddit/comments/1kynce1/how_do_you_feel_todayhow_was_your_day_serious/1kynce1)
+
+i have an extremely serious answer to this question
+
+disturbed.
+
+sam, you just dont give a fuck. you truly do not give a single fuck, from the very beginning, you did not give a fuck. everything you post, is so blatantly. gaslighting. its insane. there is no such thing as someone being as delusional as you act like you are. you make every piece of content you create with a single intent: "im trying to trick my best friend." its so bad. its just so so bad. sometimes thinking about it all at once is just so fucking overwhelming, like how could just truly, not give a single fuck. its so horrible, and the number of times i do this, i already know you turn every feeling of guilt around into a motivation to keep Hayley from finding out how horrible of a person you truly are. i am so so sorry for whatever fucked up mind games your mom played on you as a kid. i dont even know what to say right now thinking about it, its like obviously nothing i write in a reddit comment is gonna change you as a person. and i just feel fucking bad for you sometimes. but holy shit the blatant emotional abuse. i only feel bad for you because i am a secondary victim to Hayley. it so callous the way you just know, exactly what you are fucking doing, and you are fully committed to it.
+
+> 5/29/2025 5:56:51 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kylnbr/what_is_the_ugliest_baby_name_youve_ever_heard/muynedf) / [Context](https://www.reddit.com/r/AskReddit/comments/1kylnbr/what_is_the_ugliest_baby_name_youve_ever_heard/muymt0s)
+
+yeah i am doing well sam how are you?
+
+> 5/29/2025 5:53:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kymp4l/whats_the_worst_thing_some_one_has_done_to_you/muymobt) / [Context](https://www.reddit.com/r/AskReddit/comments/1kymp4l/whats_the_worst_thing_some_one_has_done_to_you/muymaw9)
+
+this is just frustratingly stupid
+
+> 5/29/2025 5:49:37 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyn3oj/whats_the_most_ridiculous_thing_youve_ever_seen/muylz8p) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyn3oj/whats_the_most_ridiculous_thing_youve_ever_seen/muyl5i5)
+
+vomit
+
+> 5/29/2025 5:49:26 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyn3oj/whats_the_most_ridiculous_thing_youve_ever_seen/muylxx7) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyn3oj/whats_the_most_ridiculous_thing_youve_ever_seen/muyksva)
+
+there are no loopholes. i am a girl. even before i transitioned, i was not sexist. no loopholes. i never said anything like this and we both know it
+
+> 5/29/2025 5:45:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyj4ex/men_when_was_the_last_time_you_let_yourself_cry/muyl41h) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyj4ex/men_when_was_the_last_time_you_let_yourself_cry/1kyj4ex)
+
+sam you are SUCH a fucking gaslighter, its unbelievable
+
+> 5/29/2025 5:44:32 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kymucx/whats_the_funniest_movie_of_all_time/muykz7h) / [Context](https://www.reddit.com/r/AskReddit/comments/1kymucx/whats_the_funniest_movie_of_all_time/1kymucx)
+
+i have not watched a single movie you commented in this entire thread
+
+> 5/29/2025 5:43:38 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kyn323/when_did_you_realize_you_might_actually_be_the/muyksvx) / [Context](https://www.reddit.com/r/AskReddit/comments/1kyn323/when_did_you_realize_you_might_actually_be_the/1kyn323)
+
+that would be an excellent prompt for self-reflection, sam
+
+> 5/29/2025 5:42:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kymos7/what_was_that_moment_that_made_you_lose_trust_in/muykknf) / [Context](https://www.reddit.com/r/AskReddit/comments/1kymos7/what_was_that_moment_that_made_you_lose_trust_in/muyi7l9)
+
+yes very much this. i dont know what the intent of this is but if you actually think this then we have common ground there sam
+
+> 5/29/2025 5:39:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kylt6g/what_is_your_blood_type/muyjwgt) / [Context](https://www.reddit.com/r/AskReddit/comments/1kylt6g/what_is_your_blood_type/muyjfgw)
+
+yes it is.
+
+> 5/29/2025 5:38:17 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kymsiv/whats_the_worst_thing_to_do_after_a_break_up/muyjqyh) / [Context](https://www.reddit.com/r/AskReddit/comments/1kymsiv/whats_the_worst_thing_to_do_after_a_break_up/muyjcov)
+
+no it'd be even worse to take someone else out to dinner to 'get over them'
+
+> 5/29/2025 5:35:43 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kymp4l/whats_the_worst_thing_some_one_has_done_to_you/muyj8us) / [Context](https://www.reddit.com/r/AskReddit/comments/1kymp4l/whats_the_worst_thing_some_one_has_done_to_you/muyhtom)
+
+sam no one, no one in the whole world tries to commit suicide because the above happened to them. you know nothing about the type of trauma i had. i already wrote before you got the record of everything i write deleted, i crashed a car into a wall because of my trauma. when you have bpd as bad as i used to you already want to die but sometimes being loved can make you wanna live until it falls apart.
+
+your whole thing makes no sense. you say i somehow have no trauma, never been through a damn thing in my life apparently according to the comment im replying to, and also at the same time am an evil genius mastermind trickster with manipulation skills so good they are somehow magical and change hayley's perception of reality.
+
+even if i werent my true self, whatever person youre talking to from any standpoint of trust, is traumatized as all fuck. anything else would not make any sense, sam
+
+> 5/29/2025 5:30:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kya8nk/why_are_you_single_now/muyi53p) / [Context](https://www.reddit.com/r/AskReddit/comments/1kya8nk/why_are_you_single_now/muxzst2)
+
+let me write an actual answer
+
+because i was never trying to date. you are the only one who thinks that way, sam. i just fall in love with people sometimes...
+
+> 5/29/2025 5:25:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kylt6g/what_is_your_blood_type/muyh599) / [Context](https://www.reddit.com/r/AskReddit/comments/1kylt6g/what_is_your_blood_type/muya3ot)
+
+sam you are not even trying to pretend to know how reddit works
+
+> 5/29/2025 5:23:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kylnbr/what_is_the_ugliest_baby_name_youve_ever_heard/muygr4e) / [Context](https://www.reddit.com/r/AskReddit/comments/1kylnbr/what_is_the_ugliest_baby_name_youve_ever_heard/muychkx)
+
+please, please stop writing disgusting things that rhyme with each other. i called hayley unprecedentedly pretty one time and you had to find a way to turn it into an ick because i was calling them pretty and you hate that bc youre a bitter person
+
+> 5/29/2025 5:22:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kylnbr/what_is_the_ugliest_baby_name_youve_ever_heard/muygjms) / [Context](https://www.reddit.com/r/AskReddit/comments/1kylnbr/what_is_the_ugliest_baby_name_youve_ever_heard/muy9fr9)
+
+let me guess. hayley remembered that we used to make fun of this guy we both knew named keith. caitlyn also knew him. he was creepy and weird and he had hit on all of us. hayley told you they dont think im a guy or that im sexist and that it wouldnt make any sense because of the things we used to say about keith.
+
+then you tried to gaslight hayley by suggesting i only disliked him because his name is keith
+
+> 5/29/2025 5:19:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kymbfq/what_are_your_guys_favourite_quotes_from_cartoons/muyfy0u) / [Context](https://www.reddit.com/r/AskReddit/comments/1kymbfq/what_are_your_guys_favourite_quotes_from_cartoons/muyf2g0)
+
+sam stop writing gross things you are trying to gaslight hayley
+
+> 5/24/2025 9:23:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuoyx5/what_are_your_thoughts_on_the_7_ancient_wonders/mu3o8hl) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuoyx5/what_are_your_thoughts_on_the_7_ancient_wonders/mu3nl5p)
+
+go play with matches
+
+> 5/24/2025 8:23:34 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3f2f4) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3ep3k)
+
+i want to talk to hayley can i please talk to hayley. hayley can you reply to me
+
+> 5/24/2025 8:21:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3ep3k) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3ed3b)
+
+holy fucking shit you know how right i am go burst into flames you are my worst enemy
+
+> 5/24/2025 8:18:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3ed3b) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3c75c)
+
+sam you are incapable of making an avatar distinguished as male without adding facial hair. its so confusing how these things are supposed to trick hayley as though they cant visibly see me, using their eyes? i hate you you make me so dysphoric you are a horrible person sam 42% of trans people try to kill themselves and here you are trying to make one dysphoric on purpose for your own benefit. you deserve a horrible life
+
+> 5/24/2025 8:16:32 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3dzvt) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupe0a/whats_a_hobby_you_find_interesting_but_actually/mu3c8c6)
+
+sam you are so fucking stupid
+
+> 5/24/2025 8:15:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupkyq/what_are_the_ways_to_make_a_supermarket_successful/mu3ds0p) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupkyq/what_are_the_ways_to_make_a_supermarket_successful/mu3doex)
+
+its not a search engine...and nobody but you and supermarket owners are thinking about the leadership strategies of supermarkets...
+
+> 5/24/2025 8:14:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupkyq/what_are_the_ways_to_make_a_supermarket_successful/mu3doex) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupkyq/what_are_the_ways_to_make_a_supermarket_successful/1kupkyq)
+
+what on earth are these questions, sam you know this isnt how askreddit works right
+
+> 5/24/2025 8:13:50 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupmfx/nonreligious_people_what_is_your_favorite/mu3dkxm) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupmfx/nonreligious_people_what_is_your_favorite/1kupmfx)
+
+what even is happening anymore sam
+
+> 5/24/2025 8:13:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu3dgva) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu3czjk)
+
+sam it is extremely controlling to downvote me hoping ill think hayley was the one who downvoted me
+
+> 5/24/2025 8:11:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu3d67g) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu37epz)
+
+[ Removed by Reddit ]
+
+> 5/24/2025 8:09:57 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu3czjk) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu37epz)
+
+[ Removed by Reddit ]
+
+> 5/24/2025 8:07:26 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu3clkl) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuounr/what_relationship_stanards_are_too_high_to_have/mu37epz)
+
+[ Removed by Reddit ]
+
+> 5/24/2025 8:05:24 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuph39/what_are_you_true_feelings_about_all_the_free/mu3cafk) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuph39/what_are_you_true_feelings_about_all_the_free/1kuph39)
+
+very good. sam this feels like a vaguely anti semitic assumption.
+
+> 5/24/2025 8:04:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupga8/what_color_is_this_trash_can/mu3c3gh) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupga8/what_color_is_this_trash_can/1kupga8)
+
+i dont know but i miss hayley so fucking much
+
+> 5/24/2025 8:03:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kup6o2/whats_the_pettiest_reason_youve_stopped_talking/mu3bz90) / [Context](https://www.reddit.com/r/AskReddit/comments/1kup6o2/whats_the_pettiest_reason_youve_stopped_talking/mu3a4j4)
+
+i see i am getting under sam's skin
+
+> 5/24/2025 8:02:48 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupcef/whats_something_you_recently_discovered_online/mu3bvy3) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupcef/whats_something_you_recently_discovered_online/mu3b924)
+
+sam how on earth does this sound like a hobby i would be interested in. "she likes creative hobbies, i know, real estate listings" you are so terrible at this
+
+> 5/24/2025 7:59:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupbi6/what_if_your_soulmate_has_passed_away/mu3bd3q) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupbi6/what_if_your_soulmate_has_passed_away/mu3b2d8)
+
+like the outlandishness , its just so ridiculous. not only would i never say something like that, someone who was on the level of shitty to say something like that, it wouldnt make any fucking sense for it to be in this type of way? as a blatantly callous sentence that no one in the whole world would think is funny, or would think even comes across as intending to be funny, as the first response to a post like this. you are so horrible at this but you also dont try
+
+> 5/24/2025 7:57:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kupbi6/what_if_your_soulmate_has_passed_away/mu3b2d8) / [Context](https://www.reddit.com/r/AskReddit/comments/1kupbi6/what_if_your_soulmate_has_passed_away/mu3aw5o)
+
+what the actual fuck is even happening now sam. you are not even trying to appear genuine
+
+> 5/24/2025 7:55:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuoyx5/what_are_your_thoughts_on_the_7_ancient_wonders/mu3aoty) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuoyx5/what_are_your_thoughts_on_the_7_ancient_wonders/mu3a4rx)
+
+there is a 99.9% chance you are sam. reddit has karma and account ages for a reason and your threads have all users with lower ones than any normal thread on any subreddit you dont post in, which is a fuck ton, and its painfully obvious which ones you do and dont. this whole thing is so deeply flawed and i dont know why hayley hasnt called you out on the fact you are clearly just trying to keep us apart because youre probably a liar
+
+> 5/24/2025 7:51:29 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kup6o2/whats_the_pettiest_reason_youve_stopped_talking/mu3a4j4) / [Context](https://www.reddit.com/r/AskReddit/comments/1kup6o2/whats_the_pettiest_reason_youve_stopped_talking/1kup6o2)
+
+i dont know sam but for you the answer is "she called me annoying, because the person i hold closest to in my life said it first, and now im not gonna use that fact to not help the closest person in my life communicate with her"
+
+im sure i annoyed you sometimes too, holy shit sam
+
+> 5/24/2025 7:49:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kup43d/whats_a_disturbing_truth_you_suspect_about_the/mu39rdo) / [Context](https://www.reddit.com/r/AskReddit/comments/1kup43d/whats_a_disturbing_truth_you_suspect_about_the/1kup43d)
+
+that sam enjoys it when hayley is living an unhappier life as long as it equates to sam's life being happier
+
+> 5/24/2025 7:47:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuoyx5/what_are_your_thoughts_on_the_7_ancient_wonders/mu39jyr) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuoyx5/what_are_your_thoughts_on_the_7_ancient_wonders/mu38a8h)
+
+i have no idea what youre talking about sam. i guess you picked up on the fact i sometimes go on wikipedia rabbit holes? firstly you have zero clue what im interested in, and there are way too many things to learn about for you to be like "i bet reina learned about this."
+
+i do love seeing these posts because the irony in knowing you are learning all about these things is very funny
+
+> 5/24/2025 7:44:35 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kulf6n/what_is_a_life_experience_you_desperately_want_to/mu390rp) / [Context](https://www.reddit.com/r/AskReddit/comments/1kulf6n/what_is_a_life_experience_you_desperately_want_to/mu31fbs)
+
+sam i am traumatized and my circles tend to include other traumatized people, and i get along well w other traumatized people. the fact i fell in love with two traumatized people is not a coincidence, it is bc im also traumatized and originally connected w both of those people by relating about that. hayley only loving me because i love them is actually one of my worst fears....the reason i said the thought that hayley wants to be loved and i want to love them but all we can do is hurt each other makes me wanna die is because it hurts the most to see the person you love the most unhappy.
+
+> 5/24/2025 7:39:38 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu388hg) / [Context](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu37uvr)
+
+sam i hope you are miserable
+
+> 5/24/2025 7:38:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuotoj/how_do_you_deal_with_random_thoughts_that_make/mu381aw) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuotoj/how_do_you_deal_with_random_thoughts_that_make/mu372bv)
+
+"i am trying so so so so so hard to sound quirky and creative"
+
+> 5/24/2025 7:37:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunu0g/whats_something_youre_grateful_for_after_high/mu37umv) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunu0g/whats_something_youre_grateful_for_after_high/mu2zhlg)
+
+you could not be more wrong. in fact, everything you do to ick out hayley, would be just as effective at icking out me if roles were changed
+
+> 5/24/2025 7:36:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunu0g/whats_something_youre_grateful_for_after_high/mu37o6s) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunu0g/whats_something_youre_grateful_for_after_high/mu2zhlg)
+
+seeing comments like this gives me a physical reaction bc i avoid and want to get away from my family so desperately
+
+> 5/24/2025 7:34:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuo9os/have_you_ever_seen_future_in_your_dreams_what_was/mu37djs) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuo9os/have_you_ever_seen_future_in_your_dreams_what_was/mu36w3j)
+
+sam why do you think you can guess how suicidal thoughts manifest in people when you dont have them at least as intensely as youre trying to pretend
+
+> 5/24/2025 7:31:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunz1y/what_was_that_random_thing_a_girl_did_that_made/mu36vec) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunz1y/what_was_that_random_thing_a_girl_did_that_made/mu30mxk)
+
+sam you sound like some type of ai trained on the script of the big bang theory
+
+> 5/24/2025 7:28:45 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuor8f/whats_your_summer_plans/mu36i1t) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuor8f/whats_your_summer_plans/1kuor8f)
+
+hayley
+
+> 5/24/2025 7:28:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuorat/what_is_a_topic_that_you_feel_doesnt_get_enough/mu36g31) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuorat/what_is_a_topic_that_you_feel_doesnt_get_enough/1kuorat)
+
+hayley
+
+> 5/24/2025 7:28:00 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuo98g/what_are_some_3am_activities_to_do_in_your_room/mu36du2) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuo98g/what_are_some_3am_activities_to_do_in_your_room/mu35nep)
+
+this is like you replying to gansta\_mike.
+
+sam you are only demonstrating how inauthentic your advice is
+
+> 5/24/2025 7:25:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kud92v/whats_the_worst_addiction_you_have/mu35y10) / [Context](https://www.reddit.com/r/AskReddit/comments/1kud92v/whats_the_worst_addiction_you_have/mu24xos)
+
+sam you know plenty about me. i was just reading our texts the other day when i coming up w the skyzone thing. you wanted to get crumbl cookies bc it was our birthday and i was like "okay cool but im not gonna eat any though because that will make me feel sick." you are just blatantly trying to trick hayley....
+
+> 5/24/2025 7:22:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuo9os/have_you_ever_seen_future_in_your_dreams_what_was/mu35h2g) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuo9os/have_you_ever_seen_future_in_your_dreams_what_was/1kuo9os)
+
+i hope so
+
+> 5/24/2025 7:21:17 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuo9os/have_you_ever_seen_future_in_your_dreams_what_was/mu35bfo) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuo9os/have_you_ever_seen_future_in_your_dreams_what_was/mu32hse)
+
+sam what is happening. do you think i am an intentional suicide baiter who makes up my diagnosis and fakes attempts, or not? you only believe me about my trauma when you can use it to make an edgy sadboi personality...
+
+> 5/24/2025 7:19:07 PM [Permalink](https://www.reddit.com/r/UnsentLetters/comments/1kum7d4/ehand_other_weirdos_stfu/mu34yuj) / [Context](https://www.reddit.com/r/UnsentLetters/comments/1kum7d4/ehand_other_weirdos_stfu/mu34wqm)
+
+you would be happier youre a lot more alike
+
+> 5/24/2025 7:18:46 PM [Permalink](https://www.reddit.com/r/UnsentLetters/comments/1kum7d4/ehand_other_weirdos_stfu/mu34wqm) / [Context](https://www.reddit.com/r/UnsentLetters/comments/1kum7d4/ehand_other_weirdos_stfu/1kum7d4)
+
+sam youre like having some type of mental episode. why do you think acting like a troll on reddit is going to confuse [hayley.you](http://hayley.you) must be exhausted i wish you would just give up and go be friends with caitlyn
+
+> 5/24/2025 7:17:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu34nid) / [Context](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu2q19h)
+
+is wanting to fuck bigfoot
+
+> 5/24/2025 7:16:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu34ja8) / [Context](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu2ok6n)
+
+you would be onto something if you sounded like a real person who drugs but you sound like sam
+
+> 5/24/2025 7:15:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu34f0d) / [Context](https://www.reddit.com/r/AskReddit/comments/1kumdp3/what_are_you_an_expert_in/mu2nwzs)
+
+holy shit you couldnt be worse at making natural sounding comments
+
+> 5/24/2025 7:14:15 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuodp4/my_grandparents_asked_what_would_you_like_us_to/mu346pv) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuodp4/my_grandparents_asked_what_would_you_like_us_to/mu33qyd)
+
+hayley i truly cant figure out why on earth you think this is helpful to you
+
+> 5/24/2025 7:13:40 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuodp4/my_grandparents_asked_what_would_you_like_us_to/mu343et) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuodp4/my_grandparents_asked_what_would_you_like_us_to/mu33qyd)
+
+holy shit this is terrible
+
+> 5/24/2025 7:13:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kumebm/what_was_the_last_thing_you_lied_about/mu3402z) / [Context](https://www.reddit.com/r/AskReddit/comments/1kumebm/what_was_the_last_thing_you_lied_about/1kumebm)
+
+i lied when i said i wouldnt forgive you.i would if you could admit you made a mistake
+
+> 5/24/2025 7:11:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuocnw/whats_a_very_specific_smell_that_instantly_brings/mu33pbf) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuocnw/whats_a_very_specific_smell_that_instantly_brings/1kuocnw)
+
+the scent of the smoke in my room brings me back like perfume
+
+get out of my head losing more than just you
+
+i lost piece of mind and the strength to get dressed
+
+to hear i love you but not question whats next
+
+tell me the truth
+
+we only spent time when you couldnt find anything better to do
+
+i only know what its like to be liked when im only one moment from feeling so used
+
+they tell me time heals all wounds, bet they never saw fools of the same kind as i am for you
+
+there is no medicine, just try forgetting a blue sky when black and whites all that you knew
+
+> 5/24/2025 7:09:19 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuo98g/what_are_some_3am_activities_to_do_in_your_room/mu33e7h) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuo98g/what_are_some_3am_activities_to_do_in_your_room/mu32g5b)
+
+"let me think of something creative six thousand times a day" it doesnt work at all you just sound painfully obvious
+
+> 5/24/2025 7:08:40 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kuo98g/what_are_some_3am_activities_to_do_in_your_room/mu33aal) / [Context](https://www.reddit.com/r/AskReddit/comments/1kuo98g/what_are_some_3am_activities_to_do_in_your_room/mu32oht)
+
+sam how much casually explained have you watched
+
+> 5/24/2025 7:07:17 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunxsf/what_is_something_you_wish_you_had_known_before/mu332b9) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunxsf/what_is_something_you_wish_you_had_known_before/mu30tvm)
+
+also the unfunny usernames do not trick anybody. its exhausting to me that you are still putting all of your energy into the same thing: "if i write gross stuff under this false pretense, hayley will think it means something about reina even though its just gross stuff i came up with"
+
+> 5/24/2025 7:04:37 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunxsf/what_is_something_you_wish_you_had_known_before/mu32mlg) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunxsf/what_is_something_you_wish_you_had_known_before/mu30tvm)
+
+yes i remember that series of reddit replies we had that one time too. sam why do you think that i dont remember anything i said on here that you do?seriously you dont spend a second thinking about your ideas theyre so terrible
+
+> 5/24/2025 7:02:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunxsf/what_is_something_you_wish_you_had_known_before/mu327wb) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunxsf/what_is_something_you_wish_you_had_known_before/mu3022u)
+
+sam you are so fucking stupid. i dont even know anymore. its crazy
+
+> 5/24/2025 7:01:13 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1kuk1yg/honestly_am_i_being_too_preachy/mu322yg) / [Context](https://www.reddit.com/r/sixwordstories/comments/1kuk1yg/honestly_am_i_being_too_preachy/mu2keiv)
+
+please stop trying to trick hayley into thinking hurting me is the right thing to do. you know exactly what youre doing. hayley is smart and they know that you writing things i said about issues your advice doesnt mean its invalid. the more you write on here the more meaningless everything you say is bc its obvious youre just going nuts
+
+> 5/24/2025 6:59:09 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1kuk1yg/honestly_am_i_being_too_preachy/mu31r2o) / [Context](https://www.reddit.com/r/sixwordstories/comments/1kuk1yg/honestly_am_i_being_too_preachy/mu2keiv)
+
+sam stop you are the worst
+
+> 5/24/2025 6:58:36 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunqz5/whats_one_thing_you_wish_you_could_do_again/mu31nyd) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunqz5/whats_one_thing_you_wish_you_could_do_again/mu31ecs)
+
+i wish i could wake up to a call from hayley again
+
+> 5/24/2025 6:56:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunqz5/whats_one_thing_you_wish_you_could_do_again/mu31ecs) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunqz5/whats_one_thing_you_wish_you_could_do_again/1kunqz5)
+
+i wish i could see hayley again
+
+> 5/24/2025 6:56:01 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1kuj7pl/why_you_so_obsessed_with_me/mu3196n) / [Context](https://www.reddit.com/r/sixwordstories/comments/1kuj7pl/why_you_so_obsessed_with_me/mu303ol)
+
+sam your fingers are going to fall off
+
+> 5/24/2025 6:55:08 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1kuj7pl/why_you_so_obsessed_with_me/mu31459) / [Context](https://www.reddit.com/r/sixwordstories/comments/1kuj7pl/why_you_so_obsessed_with_me/1kuj7pl)
+
+bc i couldnt replace you no matter how hard i tried. there is no one like you. and you dont make me anything but sad these days but you once made me happier than i ever felt and i dont know how to get that back. you shine with the lights on and i cant see anything else
+
+> 5/24/2025 6:52:23 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1kuj7pl/why_you_so_obsessed_with_me/mu30ob3) / [Context](https://www.reddit.com/r/sixwordstories/comments/1kuj7pl/why_you_so_obsessed_with_me/mu2eau0)
+
+omg you have not come up with any new ideas its wild
+
+> 5/24/2025 6:49:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kunxro/what_screams_im_on_a_power_trip/mu305r7) / [Context](https://www.reddit.com/r/AskReddit/comments/1kunxro/what_screams_im_on_a_power_trip/mu2ztwv)
+
+wow sam you really know how to repeat things i said a few days ago
