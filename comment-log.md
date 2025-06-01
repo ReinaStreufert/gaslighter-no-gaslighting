@@ -1,3 +1,9 @@
+> 6/1/2025 12:42:26 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfv9yz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfutn4)
+
+stop trying to trick hayley, you've now spent as much time on reddit as I have added up (holy shit the demonstration of your insanity in that sentence is unbelievable) we both know nobody gives a single fuck to take their time out of their day to write "what?" to a comment they don't understand , let alone not even a person who replied to them, because what the fuck could that possibly gain someone 
+
+you know this, I know this, you are a shitty person, stop trying to gaslight your friend
+
 > 6/1/2025 12:38:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0t7r7/whats_your_best_npc_outfit/mvfuei0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0t7r7/whats_your_best_npc_outfit/mvftb4i)
 
 duncan?
