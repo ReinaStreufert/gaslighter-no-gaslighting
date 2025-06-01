@@ -1,3 +1,19 @@
+> 6/1/2025 2:05:16 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdeotm) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdehk2)
+
+this is suspicious, it's really suspicious that I'm commenting after I said goodnight to Hayley don't you think ? don't go to sleep for hours, if I stop making comments it's probably just a cover, I'm probably still awake and just waiting for you to go to sleep so I can start asking the teen boys my own questions. you need to be suspicious. do not ever go to sleep sam
+
+> 6/1/2025 2:03:13 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdegt4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvde9hn)
+
+when I said I'm going to sleep it was totally a lie and you need to be suspicious sam keep close watch of r/askteenboys all night and all of early tmrw morning and afternoon you can never sleep your job is to ask teen boys
+
+> 6/1/2025 2:01:22 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvde9hn) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvddzwb)
+
+sam we can do this for as many replies as you'd like and it only is going to be more obvious than it already was that it's you with each reply
+
+> 6/1/2025 1:57:39 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdduu4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdczwu)
+
+sam go to sleep
+
 > 6/1/2025 1:49:41 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdcyup) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0gvfp/whats_one_bad_habit_that_you_do_know_you_need_to/mvdbg51)
 
 I find it so funny that every time I tell Sam to go to sleep she internally cries because she knows to be consistent she has to then say "okay so I have to stay up bc she's gonna, she's gonna do something, sketchy tonight"
