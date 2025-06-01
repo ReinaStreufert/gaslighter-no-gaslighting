@@ -1,3 +1,39 @@
+> 6/1/2025 1:06:28 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd80y2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd7v6i)
+
+anyway apparently the last few days it's been "nobody on reddit respond to any of your replies" day? how come suddenly people reply now ? it's almost as though everybody is sam
+
+> 6/1/2025 1:05:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd7v6i) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd7gr0)
+
+I'm sorry sam. if you're feeling unsafe you should let hayley or anybody who isn't me know
+
+> 6/1/2025 12:55:05 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ggib/what_made_your_life_so_much_better_that_you_wish/mvd6nxo) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ggib/what_made_your_life_so_much_better_that_you_wish/mvd60fq)
+
+sam, sleep deprivation is much worse, trust me
+
+> 6/1/2025 12:53:22 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvd6gfe) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvd64ip)
+
+yes you are
+
+you're only trying to trick hayley anyway. you know I don't "secretly like ai" you're just being sam
+
+> 6/1/2025 12:52:19 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0g812/what_do_you_like_that_others_may_find_lame/mvd6bqy) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0g812/what_do_you_like_that_others_may_find_lame/mvd65k0)
+
+you would have to pay me to play that game I did it once with my sister and her friends years ago and it is so fucking boring omg
+
+morrigan also played dnd and to be real I would just chill in their room while they were doing that 😭
+
+> 6/1/2025 12:50:56 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0g812/what_do_you_like_that_others_may_find_lame/mvd65k0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0g812/what_do_you_like_that_others_may_find_lame/mvd345f)
+
+sam you think in stereotypes
+
+> 6/1/2025 12:49:48 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd60er) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd5xqv)
+
+I am so concerned, what does this even mean sam
+
+> 6/1/2025 12:46:08 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvd5k1r) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvd5hff)
+
+you are sam
+
 > 6/1/2025 12:39:47 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd4rgj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd4c9y)
 
 I am not even trying to make fun of you I am seriously disturbed by some of the things you are writing because they are so so so unrealistic. and ever increasingly so. it's worrying and sleep deprivation has a lasting impact on your mind and you've been doing it chronically that shit accumulates
