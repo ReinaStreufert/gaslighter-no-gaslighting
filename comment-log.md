@@ -1,3 +1,125 @@
+> 6/1/2025 12:29:35 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd3gvt) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd3cmv)
+
+yes you do sam. you took a break from reddit for 1 year and then started posting daily?
+
+> 6/1/2025 12:29:05 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvd3ekg) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvd2z2z)
+
+Sam even just something in my recommended, if I point to a random post, there is a 90% chance it's your post. when I go in the comments of one of your posts, for every comment there 99.9% chance it's your comment
+
+you actually think you are going to trick me by making an unsolicited reply to a random comment in a random thread ?
+
+> 6/1/2025 12:27:15 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd365b) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd33tf)
+
+you bought this account
+
+> 6/1/2025 12:26:24 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvd3291) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0bxjm/what_was_the_lowest_point_in_your_life_howd_you/mvc4v7v)
+
+is this a joke?
+
+sam last year I spent a week in a psych ward because I overdosed and became literally psychotic. like genuine actual psychosis
+
+the year before that I made a hole in the wall w my car because I couldn't kill myself
+
+when I was 14 I tried to hang myself more times than I could individually remember and count up
+
+> 6/1/2025 12:23:44 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd2pu0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd1iz0)
+
+I actually made friends with tessa but I've been leaving her on delivered the past few weeks. idk I guess I just only engage in friendship,for recreation ? is that not why you do it ?
+
+> 6/1/2025 12:22:16 AM [Permalink](https://www.reddit.com/r/AskRedditAfterDark/comments/1ky0i6i/women_of_reddit_what_is_the_average_chance_of_you/mvd2j89) / [Context](https://www.reddit.com/r/AskRedditAfterDark/comments/1ky0i6i/women_of_reddit_what_is_the_average_chance_of_you/1ky0i6i)
+
+is she hayley ? 100%. is she anyone else ? 0%
+
+what is wrong with you sam, you are so goddamn transphobic. I never tried to hit on any of my friends we both know that you are so horrible for exploiting transphobia to gaslight hayley
+
+> 6/1/2025 12:21:02 AM [Permalink](https://www.reddit.com/r/AskRedditAfterDark/comments/1kuzlju/women_of_reddit_when_you_see_another_woman/mvd2de9) / [Context](https://www.reddit.com/r/AskRedditAfterDark/comments/1kuzlju/women_of_reddit_when_you_see_another_woman/1kuzlju)
+
+omg you are SUCH a fucking TERF
+
+sam I am a feminist and everything I have ever said during my entire life has been consistent with that. why is that hard for you to believe other than that to you, I am not a girl, I am a man pretending to be a woman
+
+you are a fuck disgusting person and I hate you. I am a goddamn feminist I hate you so much you make me so so so dysphoric :( fuck you go swallow rocks
+
+> 6/1/2025 12:16:56 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvd1u76) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvd1she)
+
+you are sam
+
+> 6/1/2025 12:16:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fyz5/what_are_your_most_important_personal_boundaries/mvd1q13) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fyz5/what_are_your_most_important_personal_boundaries/mvd1822)
+
+sam you are trying so desparately to find something you can tell hayley I am using as "a cover"
+
+stop future faking, you know just as well as I do that my hobbies are real. you are a gaslighter, you were on my ig and you saw me play weak when ur around, me and ur ghost and other songs on my guitar. you saw me play original songs I wrote when I was 15 on my ukulele. and then told hayley I must have tricked them (tricked them??? again sam you are stupid, these things, are impossible) into thinking I played the guitar. you couldn't even bare to admit that you knew I had a quality as simple as playing the guitar
+
+> 6/1/2025 12:12:27 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fyz5/what_are_your_most_important_personal_boundaries/mvd198y) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fyz5/what_are_your_most_important_personal_boundaries/mvd16p2)
+
+to be honest😭I am just saying that as it's the last guess that makes sense for me
+
+> 6/1/2025 12:11:54 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fyz5/what_are_your_most_important_personal_boundaries/mvd16p2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fyz5/what_are_your_most_important_personal_boundaries/mvd14ge)
+
+I cannot stand sports
+
+> 6/1/2025 12:11:22 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvd146n) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvd0w9h)
+
+you deleted the catfish and the thread where I commented about how you are very obviously in denial about mental health problems you know you have
+
+> 6/1/2025 12:09:42 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvd0w9h) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvcub3j)
+
+I wish you had done that too
+
+> 6/1/2025 12:08:49 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fi4k/what_is_a_game_that_you_have_played_that_makes/mvd0s3k) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fi4k/what_is_a_game_that_you_have_played_that_makes/1l0fi4k)
+
+sam this is so exhausting. why is it so hard for you to believe that I spend my time differently than you do because we like different things because we're different people
+
+> 6/1/2025 12:05:17 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvd0b4n) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvd06sb)
+
+yeah you are a dumbass sam
+
+> 6/1/2025 12:04:32 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0evlc/what_is_your_goto_conversation_topic_on_a_first/mvd07l4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0evlc/what_is_your_goto_conversation_topic_on_a_first/1l0evlc)
+
+sam only you would have a go-to anything for a first date. again I date when I get feelings for someone and want to be with them
+
+> 6/1/2025 12:03:33 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvd02ss) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvczxx3)
+
+sam the fact you don't understand what you've written is akin to saying that the tooth fairy is real, is what makes me say that seriously, you are not as smart as most people I met
+
+> 6/1/2025 12:02:06 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvczvqu) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvczqwp)
+
+this is one of the many ways that your content sticks out very obviously as "90% sam." we both know you can't trick me, stop trying to trick hayley please
+
+> 6/1/2025 12:01:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvczqwp) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvcz6zz)
+
+sam have you seen a picture of the earth ? I understand you are making a trap for stupid people but i don't think you realize there is no such thing as a person who would fall for this, it has nothing to do with intelligence, you just wrote something that makes absolutely no sense. if you don't see how it's impossible for someone to be "too dumb" to understand that the big blue earth is not 0.02% water, that is actually and genuinely concerning to me
+
+> 5/31/2025 11:59:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f9zw/what_do_you_think_askreddit_is_for/mvczhju) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f9zw/what_do_you_think_askreddit_is_for/mvczd1f)
+
+sam, stop being weird about the fact we spend our times differently, you are the only reason any of this is being brought to our attention
+
+> 5/31/2025 11:58:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f9zw/what_do_you_think_askreddit_is_for/mvczd1f) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f9zw/what_do_you_think_askreddit_is_for/mvcw1uc)
+
+yeah if I used stack overflow it would be because I'm answering questions....
+
+> 5/31/2025 11:57:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f9zw/what_do_you_think_askreddit_is_for/mvcz7oy) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f9zw/what_do_you_think_askreddit_is_for/mvcw2x3)
+
+95% sam
+
+> 5/31/2025 11:56:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvcz47i) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f57r/what_is_an_obscure_weird_fact_you_think_nobody/mvcv7et)
+
+sam you seriously seriously need to go to sleep, I am actually fucking concerned. I don't care for any reason other than you are another person who is alive. this is seriously getting weird
+
+> 5/31/2025 11:48:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ez19/how_do_you_feel_when_you_see_your_weekly_screen/mvcy0zd) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ez19/how_do_you_feel_when_you_see_your_weekly_screen/1l0ez19)
+
+what?
+
+sam I feel like you got really offended when I started talking about how you can't understand that we don't spend our time the same way. I didn't characterize that as a bad thing , it's just a fact we're not the same person ?
+
+> 5/31/2025 11:47:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0f3m5/whats_something_your_parents_never_taught_you/mvcxun3) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0f3m5/whats_something_your_parents_never_taught_you/mvcxr13)
+
+I am just so confused, how are these supposed to be guesses at what would catfish me?
+
+> 5/31/2025 11:39:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fc5r/when_youre_exhausted_but_need_to_keep_going_what/mvcwpun) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fc5r/when_youre_exhausted_but_need_to_keep_going_what/1l0fc5r)
+
+I wonder how you thought of this question
+
 > 5/31/2025 11:07:29 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0erop/what_number_is_your_tv_volume_usually_on/mvcs6qv) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0erop/what_number_is_your_tv_volume_usually_on/mvcs4lm)
 
 sam please I am begging you to go to sleep
@@ -53,12 +175,6 @@ with my probation officer, at my probation meeting
 idk if this is bc you heard me saying you're less annoying when you talk less (that's not the same as saying you talk too much, for example I like when Hayley talks a lot) but sam I never stopped talking to you, you stopped talking to me
 
 if you asked me to come over I probably would have said yes. honestly, before this experience, I cared about you as a person, and so i would have seen you if you invited me. and you have a good sense of humor sometimes too
-
-> 5/31/2025 10:08:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d8kn/what_movie_can_you_watch_all_the_time_but_has_to/mvcixdt) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d8kn/what_movie_can_you_watch_all_the_time_but_has_to/1l0d8kn)
-
-sam, every time I went to your house you would start watching either youtube or movies. so I'm guessing that's how you spend your free time. the youtube videos were also usually about games so I assume that maybe when I wasn't over you also played games.
-
-so you constantly post these questions. why, why is it so hard for you to understand that we aren't living the same life ?
 
 > 5/31/2025 10:05:59 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvcikj8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvchs0r)
 
