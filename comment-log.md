@@ -1,3 +1,87 @@
+> 6/1/2025 5:35:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l109wy/men_who_is_the_girl_youll_never_forget_during_a/mvhhbnl) / [Context](https://www.reddit.com/r/AskReddit/comments/1l109wy/men_who_is_the_girl_youll_never_forget_during_a/mvhexqx)
+
+wtf
+
+sam what is wrong with you. why do you hate hayley so much. you do. you hate them. this is the opposite of love. the exact opposite
+
+you are triyng to put them in a prison of fear and self doubt. you lie to them to separate us and when thats not enough to keep them away because your lies make no sense and they can tell youre gaslighting them, you instill paranoia and self doubt that comes from absolutely nowhere.
+
+sam what the fuck about me breaking up with morrigan because they suicide baited me, then me losing interest in them and deciding not to get back together with them shortly after meeting hayley, says the title of this post to you
+
+hayley knows that you know i am a lesbian. you have figured that out by now. there must be so much passive aggression during interactions with you two its insane.
+
+this is not protection. if you had known about something like this, you would be warning them
+
+you are like creating imaginary scenarios that would make them insecure and even in some cases frighten hayley, in what world is telling your friend imaginary but terrifying scenarios, helping them or protecting them. in what world sam
+
+you are committed this. your reputation depends on it. you dont give a single fuck, and the amount that hayley is willing to bottle up in this situation, you are going to take advantage of until the very end. hayley you already know whats going on. both of us are worried about sam. i am gonna stop commenting, weve done all of this enough...on monday, my therapist will confirm my legal name and gender change and that my birthday is exactly the same as sams, same day same year, because we went to the same school together. sam started school there around like 2nd or 3rd grade if i recall right. all i know is she was not in our kindergarten class. i was never held back, in fact i completed high school younger than sam did.
+
+presumably this information will tell you that sam is a liar...sam, please, go to sleep. if what im saying about my therapist does not happen, yall can just never speak to me again, genuinely, it would mean for a fact i were a liar/gaslighter. nobody cares if need to stop posting sam, monday is the day where hayley finds out if theyre waiting on reina, or if they were waiting on paul.
+
+> 6/1/2025 5:22:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l109wy/men_who_is_the_girl_youll_never_forget_during_a/mvhewim) / [Context](https://www.reddit.com/r/AskReddit/comments/1l109wy/men_who_is_the_girl_youll_never_forget_during_a/1l109wy)
+
+i am a girl
+
+> 6/1/2025 4:55:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0xury/what_are_your_favorite_horror_movies/mvh9trb) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0xury/what_are_your_favorite_horror_movies/1l0xury)
+
+oh my god shut up about movies. holy fucking shit sam nobody on askreddit ever talked about movies this much, go check the log. or just search "movie" and do recent in the r/askreddit search. you are not even close to subtle
+
+> 6/1/2025 4:54:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0zjkf/whats_your_deepest_darkest_secret/mvh9n8c) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0zjkf/whats_your_deepest_darkest_secret/mvh9hck)
+
+what the fuck are you talking about
+
+if this is a reference to the godfather i never even seen that. i dont understand why you are so obsessed with movies right now
+
+> 6/1/2025 4:53:39 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0zjkf/whats_your_deepest_darkest_secret/mvh9joo) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0zjkf/whats_your_deepest_darkest_secret/mvh96ro)
+
+go to sleep.
+
+> 6/1/2025 4:53:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0xlin/whats_the_most_suspicious_thing_youve_found/mvh9fjp) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0xlin/whats_the_most_suspicious_thing_youve_found/mvgujqc)
+
+hahahahahah yes somebody would definitely comment this relation of two unrelated things
+
+sam , saying something that does not make any sense , is not a joke. 90% of the "jokes" you make on here are like that because you are too sleep deprived to actually construct a joke. they are not jokes because you could generate infinite of them using a random word generator. random adjective for the question, random noun for every "joke" response.
+
+but yeah, its real content, these are real people.
+
+you are such a shitty person for not confessing. you truly are going to ride it out until the very end
+
+> 6/1/2025 4:49:36 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0zctr/what_was_your_first_job/mvh8rg6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0zctr/what_was_your_first_job/1l0zctr)
+
+sam you came into warehouse fucking constantly, you are SUCH a gaslighter
+
+> 6/1/2025 4:49:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0zh1p/whats_one_thing_you_love_about_ur_partner_but/mvh8nst) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0zh1p/whats_one_thing_you_love_about_ur_partner_but/1l0zh1p)
+
+i have no secrets.
+
+stop trying to make your best friend feel insecure
+
+> 6/1/2025 4:44:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0xooa/whats_the_worst_noises_you_can_hear_out_of_your/mvh7ppj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0xooa/whats_the_worst_noises_you_can_hear_out_of_your/1l0xooa)
+
+sam no one on all of reddit would ever respond to this post. every comment in this thread is you. every upvote is you. its all you. its like the truman show. and the fact youre still pretending for hayley is so disturbing and weird
+
+> 6/1/2025 4:43:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ynd0/which_planet_are_we_most_likely_to_conquer_first/mvh7i71) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ynd0/which_planet_are_we_most_likely_to_conquer_first/1l0ynd0)
+
+who fucking cares at all
+
+when the fuck have i ever referred to anything about conquering planets?
+
+how hard is it for you to understand that programming is not mutually exclusive with all of these random traits you personally associate it with
+
+> 6/1/2025 4:41:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0yzid/whats_a_food_you_hated_as_a_kid_but_love_now/mvh76ba) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0yzid/whats_a_food_you_hated_as_a_kid_but_love_now/1l0yzid)
+
+sam everyone deals with different issues, just because you dont understand something doesnt mean its my fault. i have sensory issues that should be enough for you to shut up about this
+
+> 6/1/2025 4:36:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ruto/whats_the_worst_movie_youve_ever_watched_in_your/mvh68e6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ruto/whats_the_worst_movie_youve_ever_watched_in_your/1l0ruto)
+
+why, why do you think this is a good idea
+
+what lyric am i apparently hearing every day about movies. what did i say about movies. what did i do that is causing this to happen to me
+
+> 6/1/2025 4:35:30 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0yvtf/what_way_did_your_childhood_trauma_change_you/mvh6107) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0yvtf/what_way_did_your_childhood_trauma_change_you/mvh58oq)
+
+"cultivated an obsession" lose the thesaurus sam
+
 > 6/1/2025 4:55:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0xury/what_are_your_favorite_horror_movies/mvh9trb) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0xury/what_are_your_favorite_horror_movies/1l0xury)
 
 oh my god shut up about movies. holy fucking shit sam nobody on askreddit ever talked about movies this much, go check the log. or just search "movie" and do recent in the r/askreddit search. you are not even close to subtle
