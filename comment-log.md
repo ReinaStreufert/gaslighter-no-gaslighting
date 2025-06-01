@@ -1,74 +1,74 @@
-> [6/1/2025 2:24:34 AM](https://www.reddit.com/r/AskReddit/comments/1l0dpae/whats_your_favorite_dessert/mvclhh7)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0dpae/whats_your_favorite_dessert/mvclhh7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0dpae/whats_your_favorite_dessert/mvcl8wq)
 
 I do have answers to this question but I would not have ever spent my time talking about food on reddit,bc I don't like thinking about food at all
 
-> [6/1/2025 2:23:07 AM](https://www.reddit.com/r/AskReddit/comments/1l0dpae/whats_your_favorite_dessert/mvcl8wq)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0dpae/whats_your_favorite_dessert/mvcl8wq) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0dpae/whats_your_favorite_dessert/1l0dpae)
 
 do you remember on our birthday when you told me that you wanted to get crumbl cookies bc it was our birthday and I was like "okay cool that'll make my stomach hurt though so I won't eat any" and then we got crumbl cookies and I didn't eat any and then you got my reddit account banned where I wrote about the birthday where we went to crumbl cookies and I didn't eat anything 
 
 do you remember that sam?
 
-> [6/1/2025 2:21:09 AM](https://www.reddit.com/r/AskReddit/comments/1l0dlob/what_do_you_want_for_fathers_day/mvcky3t)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0dlob/what_do_you_want_for_fathers_day/mvcky3t) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0dlob/what_do_you_want_for_fathers_day/1l0dlob)
 
 what
 
-> [6/1/2025 2:19:25 AM](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvcko8r)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvcko8r) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvcikj8)
 
 I think it's funny when you downvote things that are just,the truth,because it is just you being upset by the truth.but this is only bc i never spent so much time trying to identify people as narcissists before this ...
 
-> [6/1/2025 2:18:01 AM](https://www.reddit.com/r/AskReddit/comments/1l0duw8/whats_an_acquired_taste/mvckgaj)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0duw8/whats_an_acquired_taste/mvckgaj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0duw8/whats_an_acquired_taste/mvck4j3)
 
 I have a full beard
 
-> [6/1/2025 2:17:11 AM](https://www.reddit.com/r/AskReddit/comments/1l0dvoq/whats_the_reason_why_you_last_spoke_with_the/mvckbkf)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0dvoq/whats_the_reason_why_you_last_spoke_with_the/mvckbkf) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0dvoq/whats_the_reason_why_you_last_spoke_with_the/1l0dvoq)
 
 with my probation officer, at my probation meeting
 
-> [6/1/2025 2:14:02 AM](https://www.reddit.com/r/AskReddit/comments/1l0djyl/whats_the_pettiest_reason_you_stopped_talking_to/mvcjtw5)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0djyl/whats_the_pettiest_reason_you_stopped_talking_to/mvcjtw5) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0djyl/whats_the_pettiest_reason_you_stopped_talking_to/mvchkwu)
 
 idk if this is bc you heard me saying you're less annoying when you talk less (that's not the same as saying you talk too much, for example I like when Hayley talks a lot) but sam I never stopped talking to you, you stopped talking to me
 
 if you asked me to come over I probably would have said yes. honestly, before this experience, I cared about you as a person, and so i would have seen you if you invited me. and you have a good sense of humor sometimes too
 
-> [6/1/2025 2:08:14 AM](https://www.reddit.com/r/AskReddit/comments/1l0d8kn/what_movie_can_you_watch_all_the_time_but_has_to/mvcixdt)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d8kn/what_movie_can_you_watch_all_the_time_but_has_to/mvcixdt) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d8kn/what_movie_can_you_watch_all_the_time_but_has_to/1l0d8kn)
 
 sam, every time I went to your house you would start watching either youtube or movies. so I'm guessing that's how you spend your free time. the youtube videos were also usually about games so I assume that maybe when I wasn't over you also played games.
 
 so you constantly post these questions. why, why is it so hard for you to understand that we aren't living the same life ?
 
-> [6/1/2025 2:05:59 AM](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvcikj8)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvcikj8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvchs0r)
 
 I have never met a narcissist other than you and some of my family members
 
-> [6/1/2025 2:01:34 AM](https://www.reddit.com/r/AskReddit/comments/1l0d38f/whats_your_favorite_board_game/mvchunh)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d38f/whats_your_favorite_board_game/mvchunh) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d38f/whats_your_favorite_board_game/mvcfv7w)
 
 sam if I ever mentioned board games it was in the context of my sister and her husband being obsessed w board games. I don't understand how that makes it hard to believe I am not. we are different people?
 
-> [6/1/2025 1:50:51 AM](https://www.reddit.com/r/AskReddit/comments/1l0cyzh/have_you_ever_been_caught_having_sex_before_if_so/mvcg5e4)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0cyzh/have_you_ever_been_caught_having_sex_before_if_so/mvcg5e4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0cyzh/have_you_ever_been_caught_having_sex_before_if_so/mvccdgk)
 
 sam please, go to sleep. you are not making any sense and I'm concerned for your physical health
 
-> [6/1/2025 1:49:03 AM](https://www.reddit.com/r/AskReddit/comments/1l0d38f/whats_your_favorite_board_game/mvcfv7w)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d38f/whats_your_favorite_board_game/mvcfv7w) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d38f/whats_your_favorite_board_game/1l0d38f)
 
 I cannot sit through a board game that lasts longer then twenty minutes usually
 
-> [6/1/2025 1:48:16 AM](https://www.reddit.com/r/AskReddit/comments/1l0d15s/whats_a_personal_motto_or_life_motto_that_you/mvcfqow)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d15s/whats_a_personal_motto_or_life_motto_that_you/mvcfqow) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d15s/whats_a_personal_motto_or_life_motto_that_you/1l0d15s)
 
 I have said so many times this question is incredibly disgusting
 
 you are a gaslighter
 
-> [6/1/2025 1:46:48 AM](https://www.reddit.com/r/AskReddit/comments/1l0cgvf/redditors_who_is_a_person_that_youll_be_thankful/mvcfihr)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0cgvf/redditors_who_is_a_person_that_youll_be_thankful/mvcfihr) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0cgvf/redditors_who_is_a_person_that_youll_be_thankful/mvc8c7p)
 
 sam do you not remember the very beginning of this where I told you that I thought deciding willfully to raise a child was an inherently morally bad thing to do ? I stopped talking about that as much bc then you started posting things suggesting I relate to thanos, which,,,,holy shit
 
-> [6/1/2025 1:42:29 AM](https://www.reddit.com/r/AskReddit/comments/1l0a1rp/what_is_your_purpose_in_life/mvcetcm)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0a1rp/what_is_your_purpose_in_life/mvcetcm) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0a1rp/what_is_your_purpose_in_life/mvbspg9)
 
 "reina is a musician and that is an undeniably good quality....what if what if she were a musician in a genre nobody likes tho!"
 
 ,,,? can you please keep your weird paul-esc distortions of reality to yourself ? you can imagine whatever you would like. I don't understand why you are trying so hard to separate me and hayley you are an exceedingly terrible person
 
-> [6/1/2025 1:39:05 AM](https://www.reddit.com/r/AskReddit/comments/1l0anyx/what_is_your_all_time_favourite_movie_and_why/mvce9da)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0anyx/what_is_your_all_time_favourite_movie_and_why/mvce9da) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0anyx/what_is_your_all_time_favourite_movie_and_why/1l0anyx)
 
 sam, it is 2025.
 
@@ -78,45 +78,45 @@ a century. a literal century. and I have watched very obvious like one person th
 
 again, you cannot process that not everyone spends their time the exact same ways that you do
 
-> [6/1/2025 1:37:15 AM](https://www.reddit.com/r/AskReddit/comments/1l0c58k/girls_what_sex_position_is_extremely_overrated/mvcdz4i)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0c58k/girls_what_sex_position_is_extremely_overrated/mvcdz4i) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0c58k/girls_what_sex_position_is_extremely_overrated/mvcc2qa)
 
 "let me write incredibly disgusting things that are entirely unrelated to anything reina has said"
 
 these are your best guesses of how to catfish me ?
 
-> [6/1/2025 1:36:03 AM](https://www.reddit.com/r/NoStupidQuestions/comments/1l06p7d/have_reddit_relationship_advices_ever_kicked_you/mvcds9t)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/NoStupidQuestions/comments/1l06p7d/have_reddit_relationship_advices_ever_kicked_you/mvcds9t) / [Context](https://www.reddit.com/r/NoStupidQuestions/comments/1l06p7d/have_reddit_relationship_advices_ever_kicked_you/1l06p7d)
 
 I have never taken relationship advice from reddit ? you have my old reddit account
 
-> [6/1/2025 1:34:14 AM](https://www.reddit.com/r/ChatGPT/comments/1kzzyb2/professor_at_the_end_of_2_years_of_struggling/mvcdhu9)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/ChatGPT/comments/1kzzyb2/professor_at_the_end_of_2_years_of_struggling/mvcdhu9) / [Context](https://www.reddit.com/r/ChatGPT/comments/1kzzyb2/professor_at_the_end_of_2_years_of_struggling/mvcdf99)
 
 I wish you would stop poisoning my recommended with horrible subreddits
 
-> [6/1/2025 1:33:48 AM](https://www.reddit.com/r/ChatGPT/comments/1kzzyb2/professor_at_the_end_of_2_years_of_struggling/mvcdf99)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/ChatGPT/comments/1kzzyb2/professor_at_the_end_of_2_years_of_struggling/mvcdf99) / [Context](https://www.reddit.com/r/ChatGPT/comments/1kzzyb2/professor_at_the_end_of_2_years_of_struggling/1kzzyb2)
 
 holy gaslighting, you are such a gaslighter
 
-> [6/1/2025 1:32:06 AM](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvcd5jp)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvcd5jp) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvc7po5)
 
 sam if you had listened to my recordings you would know that I got a salaried job and I'm only adding this for scale but surely I will be making more money than you
 
-> [6/1/2025 1:29:32 AM](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvccqq3)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvccqq3) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvcbb7t)
 
 I don't even know what this sentence means but I will point to "name one time I have ever made a generalization separated by gender"
 
 you do it. constantly actually. "moms who compete w their daughters"
 
-> [6/1/2025 1:28:16 AM](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvccjs6)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvccjs6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvc7aq7)
 
 you are a gaslighter. when have I ever fist bumped literally anybody sam....but yeah, these are your best guesses.
 
 I don't want strangers to touch me at all and I don't like that there are any circumstances where I'm expected to touch people I don't know
 
-> [6/1/2025 1:26:07 AM](https://www.reddit.com/r/AskReddit/comments/1l0ch03/your_friend_just_installed_youtube_what_would_be/mvcc7wb)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ch03/your_friend_just_installed_youtube_what_would_be/mvcc7wb) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ch03/your_friend_just_installed_youtube_what_would_be/1l0ch03)
 
 I don't watch youtube sam. I feel like you have difficulty w understanding that not everyone spends their time the same ways you do
 
-> [6/1/2025 1:23:48 AM](https://www.reddit.com/r/AskReddit/comments/1l0ci49/whats_a_positive_way_life_has_been_unfair_to_you/mvcbv6n)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ci49/whats_a_positive_way_life_has_been_unfair_to_you/mvcbv6n) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ci49/whats_a_positive_way_life_has_been_unfair_to_you/mvc8pm3)
 
 sam , when did I ever say I liked games ? I don't at all. so how is it that you think I would rather have an arcade than be married ? that is the most insane guess in the whole world. you made a random guess, that somebody who never talked about arcades or game rooms or enjoying games even a single time, would probably rather have a game room than a wife 
 
@@ -124,17 +124,17 @@ also, I never want kids under any circumstances. I have never said anything othe
 
 so you are gonna look hayley dead in the eye and tell them "these are my best guesses. this is what I think people are like. the most enthusiastic gamers never talk about gaming."
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l09i4r/you_marry_your_username_who_do_you_marry/mvbnqe7)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l09i4r/you_marry_your_username_who_do_you_marry/mvbnqe7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l09i4r/you_marry_your_username_who_do_you_marry/mvbk2l6)
 
 sam I feel like the main thing you do is just write unfunny things and then laugh at yourself. if I were unfunny you would just let me make jokes and bask in the silence of Hayley not laughing. again everything you post about, says you think the exact opposite. otherwise you just,,,,, wouldn't.
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l09ew9/what_is_a_poor_people_habit_youll_never_stop/mvblzcz)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l09ew9/what_is_a_poor_people_habit_youll_never_stop/mvblzcz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l09ew9/what_is_a_poor_people_habit_youll_never_stop/1l09ew9)
 
 I am so confused. Sam , are you trying to trash talk me by suggesting I used to be poor  ? what is wrong with you. you think it's embarrassing to be poor ? you are seriously such a disgusting person.
 
 regardless, you would be wrong, I've always been privileged? but seriously, why on earth would you think hayley would think growing up poor is an ick. they're not a horrible person like you
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l091xr/what_is_the_worse_thing_about_being_a_man/mvbjyr0)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l091xr/what_is_the_worse_thing_about_being_a_man/mvbjyr0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l091xr/what_is_the_worse_thing_about_being_a_man/mvbh0v0)
 
 sam you are back to suggesting that a man would transition to become a woman because you apparently believe being dependent on a man is a good thing that is desirable and people pretend to be women in order to achieve that. why do you think people want that?
 
@@ -142,11 +142,11 @@ you are such a fucking terf it's so nightmarish holy shit
 
 edit: also did you just start trying to highlight the fact I'm unemployed, directly after I made a commit to the project im working on in my free time ? do the things I spend my time on make you feel insecure about how you spend your time (hand creating spam on reddit) ? sam there are so many things I feel like you show jealousy about, and you spend a thousand times as much energy on your jealousy of those things as I ever had to spend to accomplish them. getting good at songwriting is actually an extremely believable thing. you just don't believe in yourself. and when you see these things you think to yourself that you could never do the same. which is not even true, you spend more energy trying to invalidate my good qualities than it would take for you to have those qualities
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l093xs/when_was_the_last_time_you_were_naked_in_public/mvbhpsc)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l093xs/when_was_the_last_time_you_were_naked_in_public/mvbhpsc) / [Context](https://www.reddit.com/r/AskReddit/comments/1l093xs/when_was_the_last_time_you_were_naked_in_public/1l093xs)
 
 what even, you really are beyond out of ideas
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/askteenboys/comments/1kzfl41/cute_vs_hot_which_one_is_better/mvb61fq)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/askteenboys/comments/1kzfl41/cute_vs_hot_which_one_is_better/mvb61fq) / [Context](https://www.reddit.com/r/askteenboys/comments/1kzfl41/cute_vs_hot_which_one_is_better/1kzfl41)
 
 please sam im begging you. all I ever did on this account was post on askreddit replying to you. and you turn my recommended into r askteenboys it's fucking disgusting.
 
@@ -158,11 +158,11 @@ sam you are such a gaslighter.you tried to convince hayley that morrigan was a y
 
 please I am begging you stop poisoning my feed.
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/RandomThoughts/comments/1l053wp/what_is_the_opposite_of_love/mvb43wo)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/RandomThoughts/comments/1l053wp/what_is_the_opposite_of_love/mvb43wo) / [Context](https://www.reddit.com/r/RandomThoughts/comments/1l053wp/what_is_the_opposite_of_love/mvb27ph)
 
 holy shit this thread is so dumb. I know that's the point, but holy fuck
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l023e8/whats_the_thing_that_gives_u_sleepless_nights/mva2vqe)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l023e8/whats_the_thing_that_gives_u_sleepless_nights/mva2vqe) / [Context](https://www.reddit.com/r/AskReddit/comments/1l023e8/whats_the_thing_that_gives_u_sleepless_nights/1l023e8)
 
 sam what is happening. the concept of being attracted to parenthood is inherently disgusting and that's the only reason I can possibly understand why you constantly write about it. can I make something very clear, my sister is a professional babysitter and she works full time, my mom is a literal registered nurse who works with premature infants on the verge of death which I really don't think is even close to the picture you paint when you talk about these types of things, the connection you made to my mom and sister's gender is purely your own sexism. I don't know what on earth that would even have to do with being attracted to parenthood? sam that is disgusting. again you are like freud if you took out everything valuable and left just the disgustingness and sexism.
 
@@ -170,7 +170,7 @@ can we go back several months rn. bc I feel like you made a really sexist assump
 
 you could've looked it up. you are too sexist, and you assumed that I thought something in reality, you clearly think. otherwise you would have maybe considered the possibility women have more connections between their brain hemispheres than men. which is the case....you did not even care to look it up which suggests you thought you already knew the answer...why did you think it was impossible that women might have more than men ?
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/RandomThoughts/comments/1kzshdn/could_you_even_live_without_reddit/mv9zun0)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/RandomThoughts/comments/1kzshdn/could_you_even_live_without_reddit/mv9zun0) / [Context](https://www.reddit.com/r/RandomThoughts/comments/1kzshdn/could_you_even_live_without_reddit/1kzshdn)
 
 what?
 
@@ -190,7 +190,7 @@ I don't understand how you keep a straight face while claiming I have a secret r
 
 could you even live without Tumblr?
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l01vr4/what_thing_about_being_a_human_makes_you_most_sad/mv9wc7n)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l01vr4/what_thing_about_being_a_human_makes_you_most_sad/mv9wc7n) / [Context](https://www.reddit.com/r/AskReddit/comments/1l01vr4/what_thing_about_being_a_human_makes_you_most_sad/mv9tgej)
 
 false
 
@@ -198,7 +198,7 @@ Sam you stigmatize mental health problems a shocking amount. you also don't unde
 
 Sam I think this is just you projecting your denial of your obvious mental health problems as suggesting that people with mental health problems just don't understand that everyone is struggling that way and they just deal with it. no sam, you are dealing with something that the vast majority of people don't struggle with, and you need help with it
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l00gbj/people_who_have_overcome_anxiety_or_depression/mv9qk47)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l00gbj/people_who_have_overcome_anxiety_or_depression/mv9qk47) / [Context](https://www.reddit.com/r/AskReddit/comments/1l00gbj/people_who_have_overcome_anxiety_or_depression/mv9lwws)
 
 uhhhhhhh okay I have so many things to say right now
 
@@ -212,11 +212,11 @@ I have so much goddamn food trauma sam you have no idea and half of it is about 
 
 you are a really shitty person
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l00nds/whats_one_thing_you_judge_people_for_even_though/mv9nxch)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l00nds/whats_one_thing_you_judge_people_for_even_though/mv9nxch) / [Context](https://www.reddit.com/r/AskReddit/comments/1l00nds/whats_one_thing_you_judge_people_for_even_though/1l00nds)
 
 Sam this thread feels like it's designed to trap your own self into saying something unlikable
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1l00bso/if_heaven_ends_up_being_real_and_you_meet_god_one/mv9lydc)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l00bso/if_heaven_ends_up_being_real_and_you_meet_god_one/mv9lydc) / [Context](https://www.reddit.com/r/AskReddit/comments/1l00bso/if_heaven_ends_up_being_real_and_you_meet_god_one/1l00bso)
 
 I hate all religious people 
 
@@ -228,7 +228,7 @@ edit: ew fucking gross. I just saw another thread where you wrote that "republic
 
 edit 2: oh sorry, I see , is all of this happening because I reminded you how I think your best friend is so so much prettier than you are?
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1kzp4yj/what_type_of_people_piss_you_off_the_most/mv9hb1s)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kzp4yj/what_type_of_people_piss_you_off_the_most/mv9hb1s) / [Context](https://www.reddit.com/r/AskReddit/comments/1kzp4yj/what_type_of_people_piss_you_off_the_most/mv79ftt)
 
 holy shit that is so unfunny
 
@@ -238,7 +238,7 @@ now here's all this stuff I never said. sam, it is painful the way you reply to 
 
 Sam making something rhyme doesn't mean what you said was interesting....
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1kzudkf/what_was_the_reason_you_cried_last/mv9famk)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kzudkf/what_was_the_reason_you_cried_last/mv9famk) / [Context](https://www.reddit.com/r/AskReddit/comments/1kzudkf/what_was_the_reason_you_cried_last/mv864p8)
 
 oh wow so this has been going on all day LMAO
 
@@ -246,7 +246,7 @@ okay Sam. you are so ridiculous. you have seen me cry plenty of times everyone i
 
 also sam wtf. "I don't know if...as a man....I'll ever be able walk on this planet again" have you ever spoken to a real person? it's wild how much of an alien you sound like on here
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1kzz04m/regardless_of_gender_what_is_the_manliest_thing/mv9dc4p)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kzz04m/regardless_of_gender_what_is_the_manliest_thing/mv9dc4p) / [Context](https://www.reddit.com/r/AskReddit/comments/1kzz04m/regardless_of_gender_what_is_the_manliest_thing/mv98a05)
 
 you know I actually was instilled a sense of "be strong, be independent, don't ask for help from anybody do everything yourself," by my mom. my mom constantly tried highlight the value of independence. she mostly did so as an excuse to neglect us
 
@@ -256,16 +256,16 @@ so maybe you picked up on that. then, sam-vision took hold and you said "I know 
 
 I think the only reason you ever suggested anything regarding "insecure masculinity " was as a weird excuse to assume I am hiding a secretive personality...
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1kzqgrx/what_are_some_of_the_saddest_songs_you_know/mv9bcc8)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kzqgrx/what_are_some_of_the_saddest_songs_you_know/mv9bcc8) / [Context](https://www.reddit.com/r/AskReddit/comments/1kzqgrx/what_are_some_of_the_saddest_songs_you_know/1kzqgrx)
 
 sam you constantly posts suggestions of songs, movies, etc. that you think I would have specific sentiments towards. you have literally never once guessed a song or movie that I care about. you have made thousands, literally thousands of these guesses, and zero of them have been accurate. that is because my Spotify playlists are public, me and you like the same movies, and I don't think you understands tjst people have been making music, songs, art, history has been occuring, things have been being discovered, for literally fucking centuries. centuries Sam. everything you guess about, are things that have centuries worth of content to make random guesses on
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1kzqe5l/what_is_one_thing_you_no_longer_believe_in/mv9b06x)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kzqe5l/what_is_one_thing_you_no_longer_believe_in/mv9b06x) / [Context](https://www.reddit.com/r/AskReddit/comments/1kzqe5l/what_is_one_thing_you_no_longer_believe_in/mv7dmba)
 
 https://share.snapchat.com/m/45xxJdcc?share_id=RrNnF8TBRVM&amp;locale=en-US
 
 sam you are such a gaslighter it's unbelievable. I sent Hayley this and you said "uhhjhhhhhhhhh maybe she  doesn't care anymore?" you truly want anything other than for hayley to be happy
 
-> [1/19/2038 3:14:07 AM](https://www.reddit.com/r/AskReddit/comments/1kzuv35/whats_a_habit_you_picked_up_and_never_dropped/mv9al9s)
+> 1/19/2038 3:14:07 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1kzuv35/whats_a_habit_you_picked_up_and_never_dropped/mv9al9s) / [Context](https://www.reddit.com/r/AskReddit/comments/1kzuv35/whats_a_habit_you_picked_up_and_never_dropped/mv89hsc)
 
 sam you are definitely the only one who does that ...why do you think writing freakishly specific things makes sense. it's disturbing it feels like you really don't understand how the real world works. what you're doing is like trying to guess random facts about the lives of strangers you are pointing at on the street. and I mean that extremely literally as what on earth could I have said that would be a hint towards this being a habit of mine ? I only keep bringing this up because I feel like it needs citations. these are the kinds of things that lead me me to say you "are actually stupid"

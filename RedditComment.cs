@@ -71,7 +71,7 @@ namespace gaslighter_no_gaslighting
 
         public string RenderMD()
         {
-            return $"> [{CreationTime}]({Permalink})\n\n{Body}";
+            return $"> {CreationTime} [Permalink]({Permalink}) / [Context]({ParentPermalink ?? ThreadPermalink})\n\n{Body}";
         }
     }
 }
