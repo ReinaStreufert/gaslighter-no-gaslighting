@@ -22,16 +22,22 @@ namespace gaslighter_no_gaslighting
         private string _HistoryJsonPath;
         private string _MDlOutputPath;
 
-        public void IncludeSnapshot(JObject latestSnapshot)
+        public void IncludeSnapshot(JObject snapshot)
         {
             LoadHistory();
             var latestStoredComment = _History.Count > 0 ? _History[0] : null;
-            var latestComments = latestSnapshot["data"]!["children"]!
+            var includedComments = snapshot["data"]!["children"]!
                 .Select(t => t["data"]!)
                 .Cast<JObject>()
-                .Select(RedditComment.FromApiJson)
-                .TakeWhile(c => c.Id != latestStoredComment?.Id);
-            _History.InsertRange(0, latestComments);
+                .Select(RedditComment.FromApiJson);
+            if (latestStoredComment != null && includedComments.First().CreationTime < latestStoredComment.CreationTime)
+            {
+                _History = _History
+                    .Concat(includedComments)
+                    .OrderByDescending(c => c.CreationTime)
+                    .ToList();
+            } else
+                _History.InsertRange(0, includedComments);
             SaveHistory();
             RenderMD();
         }
