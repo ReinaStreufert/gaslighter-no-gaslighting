@@ -1,3 +1,139 @@
+> 6/1/2025 12:26:57 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfs83e) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfs1ul)
+
+&gt; maybe you suffer from paranoia?get well soon♥️
+
+holy shit these are the most dead giveaways in the world
+
+> 6/1/2025 12:25:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfrval) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfq0p5)
+
+sam I have noticed something really weird. you really do behave in accordance with the telling of that "Paul" story
+
+the more panicked you feel by the things I write, the more downvoted they acquire. it's like,,,,sam, you're only embarrassing yourself...
+
+> 6/1/2025 12:21:43 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfr6vv) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfqt41)
+
+sam I am concerned for you because the fact you think you can trick hayley into believing that comment was "plausibly a real person" shows that you are genuinely and actually not thinking straight. everyone, hears a funnier joke than that, every single day, actually
+
+> 6/1/2025 12:18:26 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfqjtx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfqf5e)
+
+but seriously hayley I hope you are okay because this person is intensely intensely abusive. only emotionally it seems like. but seriously she is extremely abusive.
+
+> 6/1/2025 12:17:45 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfqf5e) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfpnmd)
+
+this is so fucking deeply concerning 
+
+hayley my birthday is June 21 2004
+
+Sam you are SCREWED come Monday I cannot stop smiling
+
+> 6/1/2025 12:16:35 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfq6v7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfn6po)
+
+sam holy shit you need sleep so bad this is not a joke the things you're writing are disturbingly unrealistic
+
+> 6/1/2025 12:16:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfq3ym) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sby7/whats_the_funniest_thing_anyone_has_ever_said_to/mvfmr8f)
+
+that's the funniest thing anyone has ever said to you?
+
+> 6/1/2025 12:15:43 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfq0p5) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfpnjv)
+
+what the fuck are you talking about sam 
+
+please, please tell me what you spent hours reading about because you convinced yourself it was worth your time
+
+this experience really does make me feel like a main character
+
+> 6/1/2025 12:13:52 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfpnmd) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfop1p)
+
+lmfao she downvoted this ?
+
+oh wow, hayley what is she telling you about me?
+
+sam, how many grades did you tell hayley I was held back to make this make sense
+
+you have really lost it
+
+> 6/1/2025 12:13:00 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0s4jl/whos_your_celebrity_crush/mvfphhd) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0s4jl/whos_your_celebrity_crush/mvfox5o)
+
+please stop trying to convert me to straight. why are you not okay with the fact I am a lesbian sam ?
+
+seriously you are the only one of us who is remotely homophobic
+
+> 6/1/2025 12:10:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0s4jl/whos_your_celebrity_crush/mvfox5o) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0s4jl/whos_your_celebrity_crush/mvflrof)
+
+Sam I am a lesbian I have tried gayness 
+
+you are such an idiot
+
+> 6/1/2025 12:09:37 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0s4jl/whos_your_celebrity_crush/mvfota2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0s4jl/whos_your_celebrity_crush/mvfo95g)
+
+yes sam
+
+> 6/1/2025 12:09:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfop1p) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sdnk/if_you_could_control_time_whats_the_first_thing/mvfmjqy)
+
+Sam what the fuck are you talking about 
+
+how old am I to you ? I feel I am twenty five different people according to you. the contradictions are insane.
+
+yeah I miss my ex wife
+
+> 6/1/2025 12:07:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvfodar) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvf56c7)
+
+you are Sam
+
+> 6/1/2025 12:06:39 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sipt/what_would_be_so_cute_if_was_10_times_smaller/mvfo82l) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sipt/what_would_be_so_cute_if_was_10_times_smaller/mvfnprg)
+
+holy shit you are out of ideas
+
+you realize they come in multiple sizes right ?
+
+I am a lesbian, sam...
+
+> 6/1/2025 10:29:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvf4mlc) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvf4819)
+
+sam only you would write "I'll just assume you have some kind of mental disorder that's causing this"
+
+also, I had zero notifications whatsoever since I went to sleep, then I make a comment and ten seconds later it's this.seriously I am not an idiot
+
+> 6/1/2025 10:24:44 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvf3st2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0eqoh/whats_something_you_did_you_wish_you_had_done/mvf3k2t)
+
+sam you are so bad at this. you don't get notifications from me replying to my own self. you are just letting me know that my main character syndrome is just you having made me the main character of your life irl for some reason
+
+> 6/1/2025 10:21:19 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hup6/what_is_the_craziest_story_ever_heard_from_your/mvf358w) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hup6/what_is_the_craziest_story_ever_heard_from_your/mvdqu3t)
+
+sam I'm awake ask teen boys keep asking teen boys don't stop don't go to sleep until you die
+
+> 6/1/2025 4:01:44 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hup6/what_is_the_craziest_story_ever_heard_from_your/mvdqu3t) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hup6/what_is_the_craziest_story_ever_heard_from_your/mvdqgit)
+
+I love you I am going back to sleep. I hope you sleep well. if you're really worried about things sam has told you about me I am happy to talk through those things w as much as you like ...I love you hayley
+
+> 6/1/2025 3:58:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hup6/what_is_the_craziest_story_ever_heard_from_your/mvdqgit) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hup6/what_is_the_craziest_story_ever_heard_from_your/mvdmrlk)
+
+what the fuck???
+
+sam is this the kind of shit you make up about me to make Hayley afraid? I am so deeply concerned by what I have just read.
+
+hayley are you okay ? I am just like. Sam is a deeply bad person and I am so, I just yeah reading this gives me the creeps. she's not holding a gun to your head but she is purposefully trying to make you feel afraid for your safety and life as a direct attempt to control you.
+
+> 6/1/2025 3:47:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdpbu1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0hc4d/whats_your_favorite_hobby/mvdltm3)
+
+holy fuck sam you are such an idiot. you left my comments untouched 24/7 for a week up to now. idk maybe you are shooting the moon
+
+> 6/1/2025 3:45:10 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvdp4wa) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvdoxr1)
+
+also , can we talk about, "*gah*"?
+
+seriously are you psychiatrically okay rn
+
+> 6/1/2025 3:43:15 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvdoxr1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ccjn/whats_a_social_norm_you_secretly_wish_would/mvdok8a)
+
+sam can you shut the fuck up ? I'm trying to fall asleep. you don't need to keep replying to me to ask teen boys
+
+you are not thinking rationally bc you haven't been sleeping. the fact you started replying to me over and over and over again tonight, after taking a break from behaving that way for like a week. I had been commenting this whole entire day, without you responding to literally anything. now all of a sudden this.
+
+it's like damn, at this rate, you might not even have till Monday morning. 
+
+if I were you, I would really get some sleep. I know saying that is gonna cause the opposite and that is my intent
+
 > 6/1/2025 2:29:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdh8ro) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdguci)
 
 you really , *really* should've just stopped responding or something. the things I wrote clearly stressed you out and you felt a need to keep writing weird fucking shit. but holy fuck,nobody acts like this,,, literally anywhere on the whole app.
