@@ -1,3 +1,31 @@
+> 6/1/2025 1:19:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tewb/if_you_could_be_famous_for_one_thing_what_would/mvg2pxv) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tewb/if_you_could_be_famous_for_one_thing_what_would/mvfurbv)
+
+I see you read my commit last night. the timestamps the reddit API gave me were all 4 hours ahead don't ask me ask reddit devs😭
+
+> 6/1/2025 1:17:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0th6k/whats_something_every_adult_should_know_how_to_do/mvg2bl4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0th6k/whats_something_every_adult_should_know_how_to_do/mvfvb9e)
+
+the majority of people will never be capable of raising a kid well , you could teach everyone exactly what all the right things to do are to raise a kid and most of the world still would end up doing a bad job because the amount of emotional regulation it requires is more than almost anything else you can choose to do
+
+> 6/1/2025 1:12:00 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tmfw/whats_something_incredibly_specific_that/mvg196h) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tmfw/whats_something_incredibly_specific_that/mvg15lm)
+
+that's because stereotyping is a notoriously useless thing and is entirely a bad thing...most people learned that already sam
+
+> 6/1/2025 1:11:30 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tmfw/whats_something_incredibly_specific_that/mvg15lm) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tmfw/whats_something_incredibly_specific_that/mvfwmp8)
+
+you think in stereotypes
+
+you have never once guessed anything about me correctly, every guess you have ever made has been incorrect
+
+> 6/1/2025 1:08:35 PM [Permalink](https://www.reddit.com/r/gamedev/comments/1l0jug4/honest_opinion/mvg0kdc) / [Context](https://www.reddit.com/r/gamedev/comments/1l0jug4/honest_opinion/mvdt7k9)
+
+sam there are way too many different sub circles of "programming" for this type of catfish to ever be effective 
+
+there are no subreddits about the kind of development I do because I don't do one "kind" of development I don't enjoy doing that I like to think of problems that I have to come up with a brand new solution for 
+
+the type of stuff you'll find looking up "what do programmers post on the internet" is gonna be all about specific web development frameworks and shit like that. a project I would be more interested in would be, developing a new web development framework, which I am currently doing actually 
+
+good luck though...
+
 > 6/1/2025 12:59:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tpi9/whats_a_red_flag_that_people_ignore_in/mvfypwv) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tpi9/whats_a_red_flag_that_people_ignore_in/mvfyhz2)
 
 oh hey, I wonder if ambiguity is on purpose !!!
