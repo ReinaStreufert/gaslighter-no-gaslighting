@@ -34,6 +34,7 @@ namespace gaslighter_no_gaslighting
             {
                 _History = _History
                     .Concat(includedComments)
+                    .DistinctBy(c => c.Id)
                     .OrderByDescending(c => c.CreationTime)
                     .ToList();
             } else
