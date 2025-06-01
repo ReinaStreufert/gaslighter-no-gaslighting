@@ -15,7 +15,7 @@ namespace gaslighter_no_gaslighting
             Uri? parentPermalink = null;
             if (parentId != null)
                 parentPermalink = new Uri(threadPermalink, parentId);
-            var creationTime = DateTime.UnixEpoch.AddSeconds((int)apiJson["created_utc"]!);
+            var creationTime = DateTime.UnixEpoch.AddSeconds((int)apiJson["created_utc"]!).AddHours(-4); // dont ask me why its 4. it makes no sense
             var body = apiJson["body"]!.ToString();
             return new RedditComment(id, permalink, threadPermalink, parentPermalink, creationTime, threadTitle, body);
         }
@@ -60,7 +60,7 @@ namespace gaslighter_no_gaslighting
                 { "id", Id },
                 { "permalink", Permalink.ToString() },
                 { "threadPermalink", ThreadPermalink.ToString() },
-                { "creationTime", (int)Math.Round((CreationTime - DateTime.UnixEpoch).TotalMilliseconds) },
+                { "creationTime", (int)Math.Round((CreationTime - DateTime.UnixEpoch).TotalSeconds) },
                 { "threadTitle", ThreadTitle },
                 { "body", Body }
             };
@@ -71,7 +71,7 @@ namespace gaslighter_no_gaslighting
 
         public string RenderMD()
         {
-            return $"> {CreationTime} [Permalink]({Permalink}) / [Context]({ParentPermalink ?? ThreadPermalink})\n\n{Body}";
+            return $"> {CreationTime.ToString()} [Permalink]({Permalink}) / [Context]({ParentPermalink ?? ThreadPermalink})\n\n{Body}";
         }
     }
 }
