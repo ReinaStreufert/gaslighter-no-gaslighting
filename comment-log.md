@@ -1,3 +1,15 @@
+> 6/1/2025 12:39:47 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd4rgj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd4c9y)
+
+I am not even trying to make fun of you I am seriously disturbed by some of the things you are writing because they are so so so unrealistic. and ever increasingly so. it's worrying and sleep deprivation has a lasting impact on your mind and you've been doing it chronically that shit accumulates
+
+> 6/1/2025 12:38:22 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd4l0c) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ge45/what_is_something_good_that_you_did_but_never/mvd4c9y)
+
+go to sleep oh my god
+
+> 6/1/2025 12:36:40 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvd4d9c) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0c9lm/what_is_something_youre_grateful_for_today/mvd47tv)
+
+sam I saw whatever thing you wrote about mass and then decided it was gonna be embarrassing to have not work and deleted...
+
 > 6/1/2025 12:29:35 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd3gvt) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0fxud/have_you_ever_been_socially_isolated_if_so_how/mvd3cmv)
 
 yes you do sam. you took a break from reddit for 1 year and then started posting daily?
