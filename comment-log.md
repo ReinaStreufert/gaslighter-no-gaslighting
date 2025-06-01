@@ -1,3 +1,43 @@
+> 6/1/2025 12:59:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tpi9/whats_a_red_flag_that_people_ignore_in/mvfypwv) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tpi9/whats_a_red_flag_that_people_ignore_in/mvfyhz2)
+
+oh hey, I wonder if ambiguity is on purpose !!!
+
+sam, your tricks and traps and schemes are not as clever as you think they are. the only reason they worked before is because nobody but you would think of tricks and traps and so we weren't looking for that kind of thing until now...
+
+> 6/1/2025 12:58:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tpi9/whats_a_red_flag_that_people_ignore_in/mvfyhz2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tpi9/whats_a_red_flag_that_people_ignore_in/mvfxhd4)
+
+sam is this comment supposed to be a trap for a red flag, or a check for a green flag?
+
+it's ambiguous. you could be referring to either the other person being controlling, or the other person setting boundaries
+
+> 6/1/2025 12:57:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tjz3/what_is_the_best_feeling_in_the_world/mvfy8gb) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tjz3/what_is_the_best_feeling_in_the_world/mvfw6if)
+
+also seriously what
+
+> 6/1/2025 12:56:40 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tjz3/what_is_the_best_feeling_in_the_world/mvfy5i9) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tjz3/what_is_the_best_feeling_in_the_world/mvfwr8q)
+
+yes these are two comparable experiences
+
+sam you are dumb as fuck you cannot possibly pretend to know anything about this stuff with the life you lived ...
+
+> 6/1/2025 12:55:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tq45/how_does_it_make_you_feel_to_know_that_strangers/mvfxwju) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tq45/how_does_it_make_you_feel_to_know_that_strangers/mvfxknc)
+
+I guess sam thinks women lose their value past the age of around nineteen or so
+
+> 6/1/2025 12:53:49 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0tq45/how_does_it_make_you_feel_to_know_that_strangers/mvfxknc) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0tq45/how_does_it_make_you_feel_to_know_that_strangers/mvfxctn)
+
+at this stage ? sam I am twenty years old? is that too old for you ?
+
+> 6/1/2025 12:49:55 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfwry9) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfvo0l)
+
+also I am a LESBIAN
+
+how is that complicated
+
+> 6/1/2025 12:48:55 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfwkr5) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfvo0l)
+
+what is an arg
+
 > 6/1/2025 12:42:26 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfv9yz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvfutn4)
 
 stop trying to trick hayley, you've now spent as much time on reddit as I have added up (holy shit the demonstration of your insanity in that sentence is unbelievable) we both know nobody gives a single fuck to take their time out of their day to write "what?" to a comment they don't understand , let alone not even a person who replied to them, because what the fuck could that possibly gain someone 
