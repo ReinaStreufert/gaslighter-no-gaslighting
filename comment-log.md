@@ -1,3 +1,33 @@
+> 6/1/2025 2:29:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdh8ro) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdguci)
+
+you really , *really* should've just stopped responding or something. the things I wrote clearly stressed you out and you felt a need to keep writing weird fucking shit. but holy fuck,nobody acts like this,,, literally anywhere on the whole app.
+
+> 6/1/2025 2:26:59 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdh0wg) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdguci)
+
+sam can you find Hayley an example of an interaction like this one occurring anywhere else on the entirety of reddit ?
+
+i am asking the question because the answer is no
+
+goodnight hayley I love you
+
+> 6/1/2025 2:25:18 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdguio) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdgkbi)
+
+ugh now I have to open my laptop again
+
+> 6/1/2025 2:22:38 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdgkbi) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdg7n3)
+
+anyway you seriously know nothing about reddit and it shows
+
+ily hayley I know you know this already but truly, none of this is for me, it's all for you.
+
+> 6/1/2025 2:20:10 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdgaxa) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdg7n3)
+
+I guess we have more similar definitions of self care now
+
+> 6/1/2025 2:19:49 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdg9mf) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdg7n3)
+
+hey sam yeah I am still up, is that suspicious?
+
 > 6/1/2025 2:05:16 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdeotm) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0d4qi/whats_something_you_did_once_that_you_will_never/mvdehk2)
 
 this is suspicious, it's really suspicious that I'm commenting after I said goodnight to Hayley don't you think ? don't go to sleep for hours, if I stop making comments it's probably just a cover, I'm probably still awake and just waiting for you to go to sleep so I can start asking the teen boys my own questions. you need to be suspicious. do not ever go to sleep sam
