@@ -1,3 +1,119 @@
+> 6/1/2025 10:26:50 PM [Permalink](https://www.reddit.com/r/Killtony/comments/1l16adj/kam_patterson_is_still_the_worst/mvitvau) / [Context](https://www.reddit.com/r/Killtony/comments/1l16adj/kam_patterson_is_still_the_worst/mviqdzz)
+
+you clearly, clearly were looking for an excuse to say the n word. making a white person say the n word, is the best way to catfish someone who just sent you their story about innocent black people being murdered by police and explaining the meaning of black lives matter? go say that to hayley. please, right now, go say it. "hayley i think the best way to catfish someone who posts about blm, is to have a white catfish say the n word." go say that to their face. so you know already youre not tricking either of us, and that youre screwed regardless tomorrow, and youre doing this. you wanted to say the n word
+
+you are only adding to the list of things nobody is ever going to like you again for. its insane, you just wont stop
+
+> 6/1/2025 10:16:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l16fzb/whats_a_subtle_way_to_ask_your_crush_for_a_date/mvis83i) / [Context](https://www.reddit.com/r/AskReddit/comments/1l16fzb/whats_a_subtle_way_to_ask_your_crush_for_a_date/1l16fzb)
+
+ask if their friend knows any single friends
+
+> 6/1/2025 10:11:52 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15oc4/why_are_you_on_reddit_right_now/mvirjqq) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15oc4/why_are_you_on_reddit_right_now/1l15oc4)
+
+why are you on reddit right now, sam?
+
+> 6/1/2025 10:09:48 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l166b4/whats_the_most_painful_thing_a_human_can/mvir836) / [Context](https://www.reddit.com/r/AskReddit/comments/1l166b4/whats_the_most_painful_thing_a_human_can/mvipq7v)
+
+sam this thread has 8 upvotes.
+
+you just made 7 replies, none of which are top level. 7 second-level replies, in a the span of about 3 minutes.
+
+so yeah you are shooting the moon
+
+> 6/1/2025 10:08:24 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l16bzk/whats_the_one_thing_thats_funny_about_you/mvir08c) / [Context](https://www.reddit.com/r/AskReddit/comments/1l16bzk/whats_the_one_thing_thats_funny_about_you/mviqpct)
+
+what is funny about my life to you sam
+
+what about my life says that this is a way to catfish me. the parts with the suicide attempts ? or the drug addictions
+
+> 6/1/2025 10:07:21 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mviquae) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mviq9cu)
+
+you are sam. who are you doing this for hayley can see that for literally fucking days you stopped replying to any of my comments. you are just losing your damn mind right in front of me and hayley as we watch...
+
+> 6/1/2025 10:05:29 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/mviqjm8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/mviqdty)
+
+you are sam
+
+> 6/1/2025 10:05:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/mviqh98) / [Context](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/mviphyw)
+
+holy shit you are such an idiot. which is it. you contradict yourself every five seconds, youre not even slightly, even slightly trying anymore. it looks as though you are working as hard as you can to show that you have nothing but malice. shooting the moon
+
+> 6/1/2025 10:03:43 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/mviq9km) / [Context](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/mviph5h)
+
+what the fuck is wrong with you. TERF you are SUCH A GODDAMN TERF i dont know why i felt bad for you earlier i hope you go fucking psychotic from sleep deprivation like you made me go on pills. you are a horrible person you deserve to sufffer for the rest of your life and i am SO happy that you will because seriously no one will ever fucking like you again
+
+> 6/1/2025 10:02:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/mvipzvy) / [Context](https://www.reddit.com/r/AskReddit/comments/1l162pd/for_men_what_are_women_not_ready_to_hear/1l162pd)
+
+# sam name a single time i have ever made a generalization seperated by gender
+
+# I AM A GIRL SWALLOW ROCKS
+
+> 6/1/2025 9:59:49 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l165ex/what_does_your_reddit_username_say_about_you/mvipnee) / [Context](https://www.reddit.com/r/AskReddit/comments/1l165ex/what_does_your_reddit_username_say_about_you/1l165ex)
+
+you are sam
+
+> 6/1/2025 9:59:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mvipluu) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mvioa9v)
+
+you while drinking alone on june 21st
+
+> 6/1/2025 9:58:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mvipdsq) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mvimzdv)
+
+sam i am just trying to enjoy my life, if you take me enjoying my life as me wanting to impress you, that just makes me feel like a main character...
+
+> 6/1/2025 9:57:29 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mvipa3v) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mvimndy)
+
+sam you stigmatize mental health problems like crazy
+
+i know you struggle with these things. why are you so ashamed of it? when i talk about how you told me you wanted to kill yourself when you have to see your mom, i feel bad for you. and i felt bad for you when you told me then.
+
+what do you feel when i talk about it? it feels like you have this idea like someone having a thought like this one "i feel like i dont matter" that it somehow an embarrassing thing. i dont understand that. but i wonder if the fact you think that way is why you never got help
+
+> 6/1/2025 9:53:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mviokwz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15a81/what_is_rare_for_you_in_this_world/mvijccl)
+
+are you trying to make *me* insecure now that i pointed out how fucked up it is when you do it to hayley?
+
+> 6/1/2025 9:52:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15ldd/if_you_could_implant_one_harmless_but/mviof7p) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15ldd/if_you_could_implant_one_harmless_but/mvio4pf)
+
+i have never seen someone laugh that way before
+
+is that a thing? if so its definitely not on reddit...
+
+> 6/1/2025 9:49:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15ldd/if_you_could_implant_one_harmless_but/mviny15) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15ldd/if_you_could_implant_one_harmless_but/1l15ldd)
+
+holy fuck sam only you think about these insane things
+
+> 6/1/2025 9:48:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvint8w) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvinr13)
+
+sam you were replying to me from your catfishes with rage bait, so i pointed that out? you are...not observant
+
+> 6/1/2025 9:47:53 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvinr13) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvine2i)
+
+what on earth are you talking about
+
+> 6/1/2025 9:46:36 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15q3q/why_cant_we_get_along_any_more_in_the_us/mvinjl4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15q3q/why_cant_we_get_along_any_more_in_the_us/mvim5fr)
+
+sam why are you even trying, have you taken two seconds to look at google drive?
+
+[https://github.com/ReinaStreufert/gaslighter-no-gaslighting/blob/main/comment-log.md](https://github.com/ReinaStreufert/gaslighter-no-gaslighting/blob/main/comment-log.md)
+
+weve been through this. youre a gaslighter. you know my political views. i put this link in a comment which is still available for hayley to read above.
+
+[https://share.snapchat.com/m/45xxJdcc?share\_id=RrNnF8TBRVM&amp;locale=en-US](https://share.snapchat.com/m/45xxJdcc?share_id=RrNnF8TBRVM&amp;locale=en-US)
+
+just in case you needed it though, i just opened my snap and whaddya know i have another flashback 5 yrs ago today
+
+[https://share.snapchat.com/m/yjG1v\_oZ?share\_id=xPxB7RZz-Rk&amp;locale=en-US](https://share.snapchat.com/m/yjG1v_oZ?share_id=xPxB7RZz-Rk&amp;locale=en-US)
+
+you are such a fucking gaslighter. you are so so so sleep deprived and the fact you think hayley would believe a trans girl says all the hate comes from the left is...delusional? sam what are you talking about? i am being so frl. its just you make absolutely *no sense* and if you actually think hayley cant tell, that is embarassing
+
+> 6/1/2025 9:39:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/mvimftz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/mviklpe)
+
+that sounds like something you have probably secretly judged me for
+
+> 6/1/2025 9:38:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/mvimbm6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/1l15l5i)
+
+sam why is it so hard for you to understand that not everyone is judgemental like you?
+
 > 6/1/2025 10:11:52 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15oc4/why_are_you_on_reddit_right_now/mvirjqq) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15oc4/why_are_you_on_reddit_right_now/1l15oc4)
 
 why are you on reddit right now, sam?
