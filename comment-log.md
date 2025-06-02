@@ -1,3 +1,40 @@
+> 6/1/2025 9:49:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15ldd/if_you_could_implant_one_harmless_but/mviny15) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15ldd/if_you_could_implant_one_harmless_but/1l15ldd)
+
+holy fuck sam only you think about these insane things
+
+> 6/1/2025 9:48:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvint8w) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvinr13)
+
+sam you were replying to me from your catfishes with rage bait, so i pointed that out? you are...not observant
+
+> 6/1/2025 9:47:53 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvinr13) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15wp8/whats_one_thing_you_hate_about_the_internet_or/mvine2i)
+
+what on earth are you talking about
+
+> 6/1/2025 9:46:36 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15q3q/why_cant_we_get_along_any_more_in_the_us/mvinjl4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15q3q/why_cant_we_get_along_any_more_in_the_us/mvim5fr)
+
+sam why are you even trying, have you took two seconds to look at google drive?
+
+[https://github.com/ReinaStreufert/gaslighter-no-gaslighting/blob/main/comment-log.md](https://github.com/ReinaStreufert/gaslighter-no-gaslighting/blob/main/comment-log.md)
+
+  
+weve been through this. youre a gaslighter. you know my political views. i put this link in a comment which is still available for hayley to read above.
+
+[https://share.snapchat.com/m/45xxJdcc?share\_id=RrNnF8TBRVM\&amp;amp;locale=en-US](https://share.snapchat.com/m/45xxJdcc?share_id=RrNnF8TBRVM&amp;amp;locale=en-US)
+
+just in case you needed it though, i just opened my snap and whaddya know i have another flashback 5 yrs ago today
+
+[https://share.snapchat.com/m/yjG1v\_oZ?share\_id=xPxB7RZz-Rk&amp;locale=en-US](https://share.snapchat.com/m/yjG1v_oZ?share_id=xPxB7RZz-Rk&amp;locale=en-US)
+
+you are such a fucking gaslighter. you are so so so sleep deprived and the fact you think hayley would believe a trans girl says all the hate comes from the left is...delusional? sam what are you talking about? i am being so frl. its just you make absolutely *no sense* and if you actually think hayley cant tell, that is embarassing
+
+> 6/1/2025 9:39:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/mvimftz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/mviklpe)
+
+that sounds like something you have probably secretly judged me for
+
+> 6/1/2025 9:38:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/mvimbm6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l15l5i/whats_something_you_secretly_judge_people_for/1l15l5i)
+
+sam why is it so hard for you to understand that not everyone is judgemental like you?
+
 > 6/1/2025 5:35:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l109wy/men_who_is_the_girl_youll_never_forget_during_a/mvhhbnl) / [Context](https://www.reddit.com/r/AskReddit/comments/1l109wy/men_who_is_the_girl_youll_never_forget_during_a/mvhexqx)
 
 wtf
