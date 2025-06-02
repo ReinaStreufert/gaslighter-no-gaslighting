@@ -1,3 +1,51 @@
+> 6/2/2025 5:43:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1tdhs/what_made_you_come_home_in_excitement_after/mvnwll3) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1tdhs/what_made_you_come_home_in_excitement_after/1l1tdhs)
+
+sam you are such a fucking dumbass
+
+no wonder you didn't want them to talk to dani
+
+> 6/2/2025 5:29:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1toia/if_you_could_choose_one_living_thing_to_be/mvntzyc) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1toia/if_you_could_choose_one_living_thing_to_be/mvnprt6)
+
+I haven't even looked at this person's profile
+
+their username is pretentious, their answer is pretentious 
+
+there is nothing smart about this answer, it causes you to roll your eyes because it's not an answer to what the user actually asked. everyone knows what the question is actually trying to say, purposefully misinterpreting it and answering a different question "what do you wish didn't exist-&gt;cancer," is not anything other than annoying.
+
+I don't know why you think I am trying to give answers to things that I think sound smart. I am not.
+
+I think that this is another thing where you feeling the need to write crap like this, says you're thinking the opposite. pretentious crap is so hard to read, you just roll your eyes. if you and Hayley were rolling your eyes at the things I say or do, you wouldn't have to post these things to try and trick them
+
+you should stop being so specific. you have a pattern of showing what you truly think by emphasizing the traits you most want to minimize about me. the other day you were writing things that would trick like, little kids. when I turned that around on you and said you were over shooting it and nobody would fall for that, you turn around and go for a different angle and start writing pretentious things.
+
+I read what you write now, and it's all just compliments to me. you make me feel like a main character. I have a feeling you want exactly the opposite. in bojack there's a quote called "the movie start speech."
+
+“Okay. Carolyn, you are the star of a movie. This is the part of the movie where you get your heart broken. Where the world tests you, and people treat you like shit. But it has to happen this way. Otherwise, the end of the movie, when you get everything you want, won’t feel as rewarding. There are assholes out there, but in the end, they don’t matter. Because this movie’s not about them. It’s never been about them.”
+
+“All this time, the movie’s been about you.”
+
+you are making me feel as though me and hayley are reaching the end of the movie and it's been about us
+
+> 6/2/2025 5:19:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnrtnr) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnpgij)
+
+sam what is happening rn
+
+you are batshit insane. you are seriously like trump telling people biden died years ago and has been replaced by a double. "reina is actually reinas younger sister, she is an immigrant, and she lives behind the sonic next to the Walmart."
+
+sam nothing you say is even close to in touch with reality. you are really going to ride this out all the way until Hayley has had enough and drops you aren't you?
+
+well it's not gonna take long. you contradict yourself every five minutes, you delete things you don't want Hayley to find, and based on your behavior you are borderline abusing your amphetamine prescription.
+
+Hayley I love you so much and I miss you
+
+> 6/2/2025 5:08:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnplwp) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnjs63)
+
+youngboy toaster type joke
+
+> 6/2/2025 5:05:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1thw3/if_you_found_out_your_entire_life_was_a/mvnp2i3) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1thw3/if_you_found_out_your_entire_life_was_a/mvno79w)
+
+Sam are you okay? that's way too many questions
+
 > 6/1/2025 10:39:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l16u93/you_have_60_seconds_to_ruin_a_first_datewhat_are/mvivr4e) / [Context](https://www.reddit.com/r/AskReddit/comments/1l16u93/you_have_60_seconds_to_ruin_a_first_datewhat_are/mviuvt2)
 
 sam what the fuck
