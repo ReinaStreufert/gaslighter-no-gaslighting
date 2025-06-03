@@ -1,3 +1,29 @@
+> 6/3/2025 5:53:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2niw2/what_is_the_best_thing_someone_ever_said_to_you/mvuhfo7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2niw2/what_is_the_best_thing_someone_ever_said_to_you/1l2niw2)
+
+when hayley told me they are in love with me
+
+why are the other answers so disgusting.
+
+sam you are writing things that a 40 year old man who is attracted to teenagers would say. we met on the 6th grade camping trip
+
+why are you comfortable with the fact you have convinced someone that you love and care about them but also that they're fucking psychotic and that their memories of you telling them how we met are fabricated, and tricking them into believing that doing what they want to do and what makes them happy will lead them to get close to pedophiles. I didn't know there was a kind of emotional abuse like this. what you have convinced them does not only separate us, but it convinces them they cannot depend on their own mind and need to depend on someone else, ie you, otherwise they are destined to repeat their trauma by choice
+
+you're not even only trying to control them which is already bad enough, you are trying to permanently destroy their ability to trust for the rest of their life. I love Hayley and you know that sam. you're trying to convince them that the feeling of being loved was really one of being victimized by a pedophile.
+
+I don't know what it will take for them to see that but I know it's possible and I am not going to let that happen.
+
+you are genuinely one of the most heartless people I ever met. it is so disturbing and uncomfortable to me that we used to be friends
+
+> 6/3/2025 5:39:42 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2nxy4/what_are_you_too_afraid_to_try_but_really_want_to/mvueuc4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2nxy4/what_are_you_too_afraid_to_try_but_really_want_to/mvucj4t)
+
+I don't really understand what you're doing when you write things like this......I don't think anyone but you cares about "success." but if you're talking about money I make more than you and so I am just confused
+
+> 6/3/2025 5:37:21 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2nu8c/what_is_dating_your_ex_again_called/mvuedqx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2nu8c/what_is_dating_your_ex_again_called/mvubrce)
+
+read the username sam 
+
+you hate Hayley so fucking much it makes me want to cry and sometimes it does
+
 > 6/3/2025 2:00:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2hz2w/whats_the_most_petty_thing_youve_every_been/mvt7k2v) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2hz2w/whats_the_most_petty_thing_youve_every_been/1l2hz2w)
 
 you are evil
