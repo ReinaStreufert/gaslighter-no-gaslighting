@@ -48,6 +48,7 @@ namespace gaslighter_no_gaslighting
             LoadHistory();
             _History = _History
                 .DistinctBy(c => c.Id)
+                .OrderByDescending(c => c.CreationTime)
                 .ToList();
             SaveHistory();
             RenderMD();

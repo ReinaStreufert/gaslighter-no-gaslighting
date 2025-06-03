@@ -368,6 +368,12 @@ how hard is it for you to understand that programming is not mutually exclusive 
 
 sam everyone deals with different issues, just because you dont understand something doesnt mean its my fault. i have sensory issues that should be enough for you to shut up about this
 
+> 6/1/2025 4:39:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0z221/if_passionately_kissing_trump_for_5_minutes_meant/mvh6qzx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0z221/if_passionately_kissing_trump_for_5_minutes_meant/1l0z221)
+
+what? sam are you trying to resort to traps that involve paying me literally millions of dollars to force myself to kiss a guy ? you are only admitting that you already know i am a lesbian...
+
+right now you couldnt pay me any amount of money to kiss anyone but hayley
+
 > 6/1/2025 4:36:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0ruto/whats_the_worst_movie_youve_ever_watched_in_your/mvh68e6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0ruto/whats_the_worst_movie_youve_ever_watched_in_your/1l0ruto)
 
 why, why do you think this is a good idea
@@ -377,12 +383,6 @@ what lyric am i apparently hearing every day about movies. what did i say about 
 > 6/1/2025 4:35:30 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0yvtf/what_way_did_your_childhood_trauma_change_you/mvh6107) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0yvtf/what_way_did_your_childhood_trauma_change_you/mvh58oq)
 
 "cultivated an obsession" lose the thesaurus sam
-
-> 6/1/2025 4:39:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0z221/if_passionately_kissing_trump_for_5_minutes_meant/mvh6qzx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0z221/if_passionately_kissing_trump_for_5_minutes_meant/1l0z221)
-
-what? sam are you trying to resort to traps that involve paying me literally millions of dollars to force myself to kiss a guy ? you are only admitting that you already know i am a lesbian...
-
-right now you couldnt pay me any amount of money to kiss anyone but hayley
 
 > 6/1/2025 1:41:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvg7aey) / [Context](https://www.reddit.com/r/AskReddit/comments/1l0sprl/would_you_go_a_year_without_talking_for_1000000/mvg4la3)
 
