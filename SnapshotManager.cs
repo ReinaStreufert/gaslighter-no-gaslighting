@@ -38,7 +38,17 @@ namespace gaslighter_no_gaslighting
                     .OrderByDescending(c => c.CreationTime)
                     .ToList();
             } else
-                _History.InsertRange(0, includedComments);
+                _History.InsertRange(0, includedComments.TakeWhile(c => c.Id != latestStoredComment?.Id));
+            SaveHistory();
+            RenderMD();
+        }
+
+        public void Clean()
+        {
+            LoadHistory();
+            _History = _History
+                .DistinctBy(c => c.Id)
+                .ToList();
             SaveHistory();
             RenderMD();
         }
