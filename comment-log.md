@@ -1,3 +1,23 @@
+> 6/3/2025 2:00:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2hz2w/whats_the_most_petty_thing_youve_every_been/mvt7k2v) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2hz2w/whats_the_most_petty_thing_youve_every_been/1l2hz2w)
+
+you are evil
+
+i have talked about this many time in the recordings you dont listen to. i never could have predicted anything like this would have happened to me if given a lifetime before my life to think of possibilities
+
+you are writing things suggesting that i am playing the victim. you are batshit as fuck for that, hayley can go verify my age at any moment. i am not playing the victim, i have proven my innocence...
+
+besides, i am not "the victim." hayley is.
+
+let me turn this question around on you sam. if next time i talk to hayley they confirm to me that you made it up when you said they called you a slut, are you being wrongly accused?
+
+if i text sophie and ask her if she used to bring a knife to school, and she seems disturbed and afraid and tells me she never would have done that, are you being wrongly accused?
+
+when hayley messages every single person they can find who was in our grade, and they all hayley the exact same thing, are you going to tell them you have been wrongly accused by everyone who went to our middle school?
+
+> 6/3/2025 1:49:48 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/mvt58cj) / [Context](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/mvrybz5)
+
+holy fuck sam what are you doing
+
 > 6/3/2025 1:34:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2hay4/what_should_every_people_experience_atleast_once/mvt1ppx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2hay4/what_should_every_people_experience_atleast_once/mvsvbsu)
 
 hayley is not falling for bullshit like this and the fact you think they would by this point is insulting. you put hayley in a catch 22 where you told them i lied about my age, and any intuitions you were lying should never be acted on because if it were true, what else would someone like that be willling to do when confronted
