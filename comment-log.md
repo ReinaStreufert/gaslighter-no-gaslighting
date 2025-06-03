@@ -1,3 +1,29 @@
+> 6/3/2025 12:14:45 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l21xpi/whats_a_subtle_sign_someone_is_a_bad_person/mvpq6me) / [Context](https://www.reddit.com/r/AskReddit/comments/1l21xpi/whats_a_subtle_sign_someone_is_a_bad_person/mvpopox)
+
+i have just been frozen staring into space in shock right now. you constructed an elaborate trick that would be sure to convince hayley they cannot trust their own self. the effect this would have on them is extremely predictable and so i am sure you did it on purpose. this is so many levels o fucked up. you are such a cold and miserable fucking person sam.
+
+sam, holy shit. what i am describing right now. it has a name.
+
+munchausen by proxy, when you convince someone they have an imaginary illness for which they need to depend on you for. in this case, the imaginary illness is a mental one. a non-existent one, where people who were victims of pedophilia grow up to be attracted to pedophiles. sam you are such a horrible person i dont even know what to say. its so many levels of horrible. i am just, holy shit this makes me feel so sad. and scared for hayley, because this is a level of emotional abuse i never knew existed. you really thought this out. and you really did not give a single fuck.
+
+hayley i would encourage you verify my age as quickly as you can and in the meantime please keep a distance from sam. she is not a safe person she is abusive and i have no clue what her limits may or may not be
+
+sam i am sad because the fact this is. what it is,,
+
+did you come up with this idea because hayley told you about james' mom, and you decided to,,,,try it?
+
+i feel sick right now
+
+> 6/3/2025 12:03:58 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l21xpi/whats_a_subtle_sign_someone_is_a_bad_person/mvpopox) / [Context](https://www.reddit.com/r/AskReddit/comments/1l21xpi/whats_a_subtle_sign_someone_is_a_bad_person/1l21xpi)
+
+sam holy shit, you threaten hayley daily, you separated us by convincing them they fell in love with a pedophile. that they unknowingly recreated their csa trauma by choice.
+
+do you understand, how fucking disturbing that is? i cannot even imaging how hayley has felt this whole time. nothing like that would ever happen which is the reason i am just going to say it: if i were in hayley's shoes the things you have convinced them of would make me feel actually disgusted with myself. i would feel like i cannot trust my own likes and dislikes, and i would feel like i cannot trust a single thought in my mind or choice i wanted to make. that my own instincts exist to sabotage me.
+
+this is psychopathic, and i am realizing while im writing how you have acquired so much control and leverage over hayley. the more i write the more i slow down and think about what i am saying
+
+you are a monster. and you are talking about the moral character of others right now?
+
 > 6/2/2025 11:39:36 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1vgsk/what_is_something_cheaters_always_say/mvplbc8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1vgsk/what_is_something_cheaters_always_say/mvouyfm)
 
 what in the fuck are you talking about sam
