@@ -1,3 +1,19 @@
+> 6/3/2025 12:46:15 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/mvpucbo) / [Context](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/1l232jz)
+
+well i am worried at this point about whether sam you may have so much influence over hayley that they never speak to anybody else who went to our school or verify our age. and in that situation the hardest thing i will ever have to do is to walk away from this situation knowing what i know, that hayley thinks their emotional abuser is their best friend, and that there is absolutely nothing i can do about it.
+
+when me and hayley were friends, they made it very obvious without being prompted to that they were happier in our friendship than they were with you, sam. me and hayley both felt a kind of happiness that was different from things we felt before.
+
+at this point i have figured out that is because me and hayley are the first people in the others life to truly care for the other without having a desire to control the other.
+
+you are so heartless that you convinced hayley the feeling of being loved while being free, was really a feeling they by recreating their csa.
+
+if i have to walk away from this without them ever finding out the truth, that will be the hardest thing ive ever had to do
+
+> 6/3/2025 12:35:11 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l230l1/what_is_the_one_question_you_might_never_get_an/mvpswce) / [Context](https://www.reddit.com/r/AskReddit/comments/1l230l1/what_is_the_one_question_you_might_never_get_an/1l230l1)
+
+why the fuck did sam do this
+
 > 6/3/2025 12:14:45 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l21xpi/whats_a_subtle_sign_someone_is_a_bad_person/mvpq6me) / [Context](https://www.reddit.com/r/AskReddit/comments/1l21xpi/whats_a_subtle_sign_someone_is_a_bad_person/mvpopox)
 
 i have just been frozen staring into space in shock right now. you constructed an elaborate trick that would be sure to convince hayley they cannot trust their own self. the effect this would have on them is extremely predictable and so i am sure you did it on purpose. this is so many levels o fucked up. you are such a cold and miserable fucking person sam.
