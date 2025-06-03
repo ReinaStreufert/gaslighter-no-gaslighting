@@ -1,3 +1,23 @@
+> 6/3/2025 6:13:47 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ok6f/whats_something_completely_legal_that_feels_very/mvulbsx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ok6f/whats_something_completely_legal_that_feels_very/mvuhm2q)
+
+holy fuck you are SUCH a dumbass sam. and i mean it, everyone is going to hate you for the rest of your life because you wanted to control hayley. this shit has nothing to do with society, im talking about YOU sam. read the username
+
+nobody ever wrote this question on askreddit literally once until you started posting here. none of the posts you make titled this ever made it to the front page
+
+writing crap like this , literally twice, in this thread, not only doesnt trick me but its actually a dead give away. but you are only trying to trick hayley anyway
+
+hayley, sam will say anything to keep you on the hook. "i think i can still trick her if i just-" shes a gaslighter, trust your memories hayley. even if she could magically make me forget the last several months, allowing her to "trick" me so she can keep gaslighting you is the absolute last thing you should want.
+
+just go find out the truth for yourself, sam is doing all of this explicitly for the purpose of trying to stop you from doing that. the things she suggests you do are an attempt to sabotage your life.
+
+hayley, you need to depend on yourself.
+
+> 6/3/2025 6:03:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ogn6/whats_a_job_that_would_instantly_be_ruined_if/mvujdyc) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ogn6/whats_a_job_that_would_instantly_be_ruined_if/mvugv3f)
+
+what is wrong with you. i have never so much as thought of a joke like this let alone said one. you are the only one who is thinking this way.
+
+read the username
+
 > 6/3/2025 5:53:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2niw2/what_is_the_best_thing_someone_ever_said_to_you/mvuhfo7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2niw2/what_is_the_best_thing_someone_ever_said_to_you/1l2niw2)
 
 when hayley told me they are in love with me
