@@ -1,3 +1,115 @@
+> 6/2/2025 9:37:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1zhae/help_how_did_you_tell_your_partner_you_were_done/mvp22a9) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1zhae/help_how_did_you_tell_your_partner_you_were_done/mvp1l43)
+
+stop terrorizing Hayley stay away from them you are an evil person. you are making them afraid on purpose because you want to control them. you are threatening hayley you hate them this is the opposite of love you have put them in a prison they have absolutely nothing to be afraid of and you and I both know it
+
+> 6/2/2025 9:27:20 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1yrwu/what_movie_has_the_best_friendship_you_have_ever/mvp0egw) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1yrwu/what_movie_has_the_best_friendship_you_have_ever/1l1yrwu)
+
+sam you have posted so many fucking threads about movies it's unbelievable 
+
+I don't care about movies at all how hard is that to understand 
+
+you seriously can't believe that about me ? you are unable to actually *believe* that I don't care about movies
+
+that is what I mean by you're a narcissist. it's a specific thing. you are insanely self centered
+
+you also cannot *believe* that someone who programs doesn't care about lord of the rings or star wars or video games or anything else you have personally seen it be associated with
+
+sam you are not the entire world. it's like you met somebody once in your life who was a programmer, and they also liked star wars and lord of the rings and all these things, and so you decided they go together. holy shit this is why everyone thinks you are annoying
+
+> 6/2/2025 9:17:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1xr3v/what_did_you_do_in_your_happiestsaddest_day_in/mvoyou3) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1xr3v/what_did_you_do_in_your_happiestsaddest_day_in/1l1xr3v)
+
+sam why are you trying to suggest I was never traumatized
+
+> 6/2/2025 9:03:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1ylyv/what_is_something_you_hate_about_something_you/mvowdz7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1ylyv/what_is_something_you_hate_about_something_you/mvou092)
+
+what the fuck
+
+this is so transphobic sam
+
+stop suggesting terrible concepts to Hayley
+
+this is not how dysphoria works at fucking all. I hate every single thing about being trans. everything 
+
+you are such a shit person. I don't think about my gender sam. literally ever, because I'm a normal goddamn person 
+
+the whole reason I transitioned was because I wanted to stop having to think about my gender. I was forced to bc of dysphoria 
+
+I am just trying to live my goddamn life without being miserable. what the fuck is your problem with that? what is wrong with you. you are irl transphobic, you are also irl dumb as fuck and I think the two are connected because the amount of difficulty you have in processing that it's not a fucking choice
+
+when the fuck have I ever talked about my the fact I'm a girl. who cares. who fucking cares. you are the only one who goddamn cares so I'm begging you to stop suggesting this disgusting shit is a nightmare depiction of trans people you are such a shit ass person. I transitioned because the other option was BEING MISERABLE FOR THE REST OF MY LIFE
+
+you are the OPPOSITE. OF. AN ALLY. you are the most transphobic person I have ever fucking met. not only that but you are irl sexist , what the fuck in you says that anyone on this whole goddamn earth would think to themselves "I like being female !!!" what the fuck. who the fuck thinks about their gender or anyone's gender that way in the first place. but for anyone to say they like being female is goddamn insane
+
+you are SO FUCKING TRANSPHOBIC FOR SAYING THAT SOMEONE WOULD TAKE ESTROGEN BECAUSE THEY "LIKE BEING FEMALE" OR WOULD TRANSITION BECAUSE THEY "LIKE BEING FEMALE" you are so fucking transphobic for suggesting anyone in this whole world would do that
+
+> 6/2/2025 8:53:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1ynpc/whats_a_part_of_your_body_you_must_crack_everyday/mvouoz2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1ynpc/whats_a_part_of_your_body_you_must_crack_everyday/mvotlu2)
+
+Sam what does this mean
+
+like I understand it's supposed to be some kind of gross thing
+
+but as far as I can tell it's completely meaningless. what does that,,,,mean?
+
+edit: same with "my dick." what,,,,does that mean
+
+> 6/2/2025 6:44:19 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1voni/whats_a_movie_you_can_watch_over_and_over/mvo84c9) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1voni/whats_a_movie_you_can_watch_over_and_over/1l1voni)
+
+sam what is wrong with you
+
+> 6/2/2025 6:05:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1v3ih/whats_your_biggest_fear/mvo0vze) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1v3ih/whats_your_biggest_fear/mvo0ln1)
+
+what the fuck are you talking about
+
+you are such a piece of shit. i cant wait for everyone to know
+
+> 6/2/2025 5:43:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1tdhs/what_made_you_come_home_in_excitement_after/mvnwll3) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1tdhs/what_made_you_come_home_in_excitement_after/1l1tdhs)
+
+sam you are such a fucking dumbass
+
+no wonder you didn't want them to talk to dani
+
+> 6/2/2025 5:29:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1toia/if_you_could_choose_one_living_thing_to_be/mvntzyc) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1toia/if_you_could_choose_one_living_thing_to_be/mvnprt6)
+
+I haven't even looked at this person's profile
+
+their username is pretentious, their answer is pretentious 
+
+there is nothing smart about this answer, it causes you to roll your eyes because it's not an answer to what the user actually asked. everyone knows what the question is actually trying to say, purposefully misinterpreting it and answering a different question "what do you wish didn't exist-&gt;cancer," is not anything other than annoying.
+
+I don't know why you think I am trying to give answers to things that I think sound smart. I am not.
+
+I think that this is another thing where you feeling the need to write crap like this, says you're thinking the opposite. pretentious crap is so hard to read, you just roll your eyes. if you and Hayley were rolling your eyes at the things I say or do, you wouldn't have to post these things to try and trick them
+
+you should stop being so specific. you have a pattern of showing what you truly think by emphasizing the traits you most want to minimize about me. the other day you were writing things that would trick like, little kids. when I turned that around on you and said you were over shooting it and nobody would fall for that, you turn around and go for a different angle and start writing pretentious things.
+
+I read what you write now, and it's all just compliments to me. you make me feel like a main character. I have a feeling you want exactly the opposite. in bojack there's a quote called "the movie start speech."
+
+“Okay. Carolyn, you are the star of a movie. This is the part of the movie where you get your heart broken. Where the world tests you, and people treat you like shit. But it has to happen this way. Otherwise, the end of the movie, when you get everything you want, won’t feel as rewarding. There are assholes out there, but in the end, they don’t matter. Because this movie’s not about them. It’s never been about them.”
+
+“All this time, the movie’s been about you.”
+
+you are making me feel as though me and hayley are reaching the end of the movie and it's been about us
+
+> 6/2/2025 5:19:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnrtnr) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnpgij)
+
+sam what is happening rn
+
+you are batshit insane. you are seriously like trump telling people biden died years ago and has been replaced by a double. "reina is actually reinas younger sister, she is an immigrant, and she lives behind the sonic next to the Walmart."
+
+sam nothing you say is even close to in touch with reality. you are really going to ride this out all the way until Hayley has had enough and drops you aren't you?
+
+well it's not gonna take long. you contradict yourself every five minutes, you delete things you don't want Hayley to find, and based on your behavior you are borderline abusing your amphetamine prescription.
+
+Hayley I love you so much and I miss you
+
+> 6/2/2025 5:08:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnplwp) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1swv3/whats_something_you_havent_been_able_to_find/mvnjs63)
+
+youngboy toaster type joke
+
+> 6/2/2025 5:05:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1thw3/if_you_found_out_your_entire_life_was_a/mvnp2i3) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1thw3/if_you_found_out_your_entire_life_was_a/mvno79w)
+
+Sam are you okay? that's way too many questions
+
 > 6/2/2025 9:03:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l1ylyv/what_is_something_you_hate_about_something_you/mvowdz7) / [Context](https://www.reddit.com/r/AskReddit/comments/1l1ylyv/what_is_something_you_hate_about_something_you/mvou092)
 
 what the fuck
