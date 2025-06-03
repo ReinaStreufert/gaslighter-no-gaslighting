@@ -1,3 +1,21 @@
+> 6/3/2025 1:34:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2hay4/what_should_every_people_experience_atleast_once/mvt1ppx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2hay4/what_should_every_people_experience_atleast_once/mvsvbsu)
+
+hayley is not falling for bullshit like this and the fact you think they would by this point is insulting. you put hayley in a catch 22 where you told them i lied about my age, and any intuitions you were lying should never be acted on because if it were true, what else would someone like that be willling to do when confronted
+
+roughly a week ago, they became suspicious enough that they were willing to break this catch 22 and upvote a reply to an untouched reply of mine, sort of non seriously questioning if you thought i was older than i was. since then i have figured out the i believe most significant details of how you have been controlling them. they are reaching a tipping point where they are more afraid of the now more-likely-than-not scenario where you are their emotional abuser than they are of the ever decreasingly realistic scenario where i lied to them about my age. they had started to approach this tipping point the moment they wouldnt let me slip all the way away no matter what you had to say about it.
+
+youre not tricking anybody, youre just embarassing yourself
+
+> 6/3/2025 1:23:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2hivc/what_small_thing_would_have_a_major_impact_on/mvszdg1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2hivc/what_small_thing_would_have_a_major_impact_on/1l2hivc)
+
+holy fuck sam, you think i am thinking about things like barcodes or hydrogen atoms while reading a question like this one at a time like this?
+
+there is only one answer that comes up right now. it is you, sam. the fact you are posting about crap nobody cares about right now is truly something else.
+
+youre gonna make me say it again. the answers in this thread are not good answers theyre pretentious ones which use purposefully too much thought to answer the question in a way that "nobody would think of," because theyre answering an interpretation of the question that nobody would have made. everyone can spend longer than necessary thinking about how to interpret a question in a way that is different than the first place your mind goes to, in this case things like donald trump. which is actually a smaller and singular "thing" unlike the entire concept of "barcodes." getting rid of a barcode on a specific product is to "getting rid of barcodes as a concept" as getting rid of trump is to getting rid of politicians as a concept.
+
+these answers are all terrible
+
 > 6/3/2025 12:39:47 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2gfas/what_are_your_thoughts_on_using_fasting_as_a/mvspt0p) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2gfas/what_are_your_thoughts_on_using_fasting_as_a/mvsnsx8)
 
 sam this is wild
