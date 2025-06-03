@@ -1,3 +1,47 @@
+> 6/3/2025 12:39:47 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2gfas/what_are_your_thoughts_on_using_fasting_as_a/mvspt0p) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2gfas/what_are_your_thoughts_on_using_fasting_as_a/mvsnsx8)
+
+sam this is wild
+
+are you trying to suggest that I have a different kind of eating disorder ? did you decide to try a caitlyn ?
+
+I feel weird about this one.nothing you write is about me , it's all about you, and this makes me feel bad bc I feel like maybe you were fat shamed and you're taking the fact I'm freakishly skinny personally. this kind of thing is the kind of thing that allows me to have a bit of empathy for you and I don't want to make fun of that. in reality I have a different problem which is that I struggle to meet my nutritional needs, I want to gain weight. estrogen changes the way fat is distributed in your body, but it doesn't help much if you never actually gain enough fat to work with. I wish I could gain weight. most girls wish they were wishing that. so I get the suggestion but I only grew up being exposed to fat shaming through social norms outside of my family
+
+anyway sam you are as far as I can perceive just as skinny as I am
+
+> 6/3/2025 12:29:30 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2fql4/what_makes_people_cheat/mvsnmlr) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2fql4/what_makes_people_cheat/mvsi9h3)
+
+what are you talking about 
+
+lack of communication ? insecurity ? are you naming traits that you believe I associate with Hayley ? hayley did not cheat on me. they cheated on an (imaginary) old man who wanted to traumatize them. if you think I am upset or distrustful of them for that you are crazy. I am upset with you , because you were happy to convince hayley that the person who loves them and they fell in love with, was them recreating the worst of their childhood trauma by their own choice. you are one of the most horrible people I have ever known. I am shocked that someone who is so heartless is someone I used to hangout with and have pillow fights with. I cannot imagine how lost and confused hayley must have felt, you made them feel like their own self, was the very last person they could trust. that lead them to then get back together w somebody who was *actually* trying to traumatize them which you surely don't give a single fuck about, you don't care about anything. you practically said it yourself in middle school. what else could you have meant. you said that scared yourself about you. at some point you fully committed to the idea that you just "don't care." and I assume you decided that bc of the cold things that have happened to you which is truly the opposite of what you should have thought. but nothing I write in a reddit comment is going to cure you.
+
+the comment that the person replying to was replying to, is the only condition that is mandatory in order for someone to cheat. all other answers are things that cheaters will sometimes tack on as something that pushed them to do it.
+
+hayley I love you and I am sorry for every time I ever was upset with you for getting back together with wyatt. I had no idea you were being manipulated in such a twisted way
+
+> 6/3/2025 12:11:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2fql4/what_makes_people_cheat/mvsjq8w) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2fql4/what_makes_people_cheat/mvsi36f)
+
+says the person who doesn't care about her own best friend
+
+I doubt you care about your boyfriend either or care meaningfully for anything with more needs than a cat
+
+> 6/3/2025 10:19:43 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2cu9u/whats_something_you_often_feel_the_need_to_vent/mvrw0er) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2cu9u/whats_something_you_often_feel_the_need_to_vent/mvrtsqw)
+
+sam this is your feelings about the ways I enjoy spending my time
+
+I feel zero pressure to be productive, otherwise I'd be showering right now
+
+> 6/3/2025 8:21:04 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2a5y2/who_do_you_objectively_think_has_the_most/mvracbw) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2a5y2/who_do_you_objectively_think_has_the_most/1l2a5y2)
+
+hayley 
+
+go to sleep sam
+
+> 6/3/2025 4:05:03 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/mvqg824) / [Context](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/mvq8kdb)
+
+holy fuck I cannot wait until I never have to think about you again
+
+frankly, no one one is ever going to this you of you in a positive light again. I cannot wait. you are so ridiculous
+
 > 6/3/2025 12:46:15 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/mvpucbo) / [Context](https://www.reddit.com/r/AskReddit/comments/1l232jz/what_is_the_hardest_thing_youve_ever_had_to_do/1l232jz)
 
 well i am worried at this point about whether sam you may have so much influence over hayley that they never speak to anybody else who went to our school or verify our age. and in that situation the hardest thing i will ever have to do is to walk away from this situation knowing what i know, that hayley thinks their emotional abuser is their best friend, and that there is absolutely nothing i can do about it.
