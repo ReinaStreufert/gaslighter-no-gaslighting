@@ -1,3 +1,11 @@
+> 6/4/2025 3:11:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3cnr0/whats_a_common_norm_you_dont_care_about/mw056kk) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3cnr0/whats_a_common_norm_you_dont_care_about/mvzt4mp)
+
+sam ten years ago we were ten years old
+
+what is wrong with you. the more obvious it gets you're a gaslighter the harder you're going to try and hammer this in, because this is how you got control over Hayley before
+
+they understand what did you did and that it's not a coincidence. the thing you are hammering in is also reminding Hayley that you're doing it to control them because your plan has been identified atp. it's a matter of fucking time but you clearly don't care, the number of times I almost left before probably made you hopeful as fuck and now you're never going to stop trying to gaslight them
+
 > 6/4/2025 3:01:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3div0/what_was_the_dumbest_lie_you_believed_as_a_child/mw033iy) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3div0/what_was_the_dumbest_lie_you_believed_as_a_child/mvzzqtc)
 
 sam what is happening, this has to be about you, you know that you are the only one of us who read or even watched harry potter. you know that you were literally fucking obsessed with harry potter, and that I always thought it was annoying as fuck. if I heard that you you became one of those people who talks about "reality shifting" into hogwarts on tiktok I wouldn't have been surprised
