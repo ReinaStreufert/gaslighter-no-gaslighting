@@ -1,3 +1,33 @@
+> 6/4/2025 2:27:51 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3achp/whats_something_from_your_childhood_you_wish_you/mvzw2o1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3achp/whats_something_from_your_childhood_you_wish_you/mvzarnt)
+
+what the fuck even
+
+> 6/4/2025 1:58:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3c0en/whats_something_thats_socially_acceptable_now_but/mvzpt0w) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3c0en/whats_something_thats_socially_acceptable_now_but/mvzpa6s)
+
+stop
+
+> 6/4/2025 12:43:31 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l39xvk/how_would_you_answer_the_question_are_you/mvz9jqq) / [Context](https://www.reddit.com/r/AskReddit/comments/1l39xvk/how_would_you_answer_the_question_are_you/mvz78m0)
+
+holy fucking young boy toaster shut the fuck up sam. you're such a gaslighter and you're just being a dick to hayley at this point. listen to my recordings. we are past this, Hayley is so smart they cannot be tricked by you writing unfunny things and they have way more important things to be thinking about. no one cares about this. you have nothing to post because you know that Hayley has a goddamn memory there is nothing you can do that isn't suspicious
+
+I wish you would confess but you are going to take advantage of hayley for as long as they will let you. you are an awful person and I am so excited for Hayley to speak to somebody else
+
+> 6/4/2025 12:33:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l39u44/whats_one_food_that_you_hated_as_a_kid_but_love/mvz7c8p) / [Context](https://www.reddit.com/r/AskReddit/comments/1l39u44/whats_one_food_that_you_hated_as_a_kid_but_love/mvz5fxc)
+
+stop talking about food you know you're a gaslighter so you know you're just making Hayley feel like shit for no reason
+
+> 6/4/2025 11:46:01 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l38i7x/what_was_something_you_thought_was_common/mvyxer4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l38i7x/what_was_something_you_thought_was_common/1l38i7x)
+
+oh my god shut up about this sam, I have never called anyone else I know but you stupid, I am being so serious rn, it's not about anyone other than you not only is it personal it's so personal that you're the first person I've ever known personally who I called stupid
+
+sam this is a projection you are the kind of person who thinks they are a genius because they spent way more time thinking about something that no one else cares about. "copy hayley's trauma" is not complicated but nobody thinks about manipulating others the way you do. that's not something to be proud of
+
+before I knew you were a gaslighter, I called you a dumbass because I thought you were telling Hayley to assume I was a man for no reason other than me buying nitrous under 21. now I call you a dumbass because you expected that your plan was "so smart" that you would get away with it despite telling Hayley I didn't even go to our school. it is going to be so nuts when they start texting people who went to our school and you start telling them it's a witch hunt
+
+> 6/4/2025 9:24:43 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l356om/what_makes_you_feel_okay/mvy4nmm) / [Context](https://www.reddit.com/r/AskReddit/comments/1l356om/what_makes_you_feel_okay/mvy2axm)
+
+yikes
+
 > 6/4/2025 3:32:31 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2zeyi/who_is_the_currently_unhappiest_person_on_planet/mvwwb53) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2zeyi/who_is_the_currently_unhappiest_person_on_planet/mvwvw54)
 
 sam I hope this is your real life account 
