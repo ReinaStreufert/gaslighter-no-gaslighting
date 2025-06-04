@@ -1,3 +1,41 @@
+> 6/3/2025 11:44:52 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/mvw55r8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/mvw30bs)
+
+let me add some context. you me and Hayley walked to hayleys dads house to get drinks bc we are all underage. later Hayley had to take a bath. then you and me got drunk, you were belting the lyrics to songs , I ended up getting way too fucking drunk and I'm p sure that you held my hair while I threw up.
+
+another time, the first time I met hayleys mom, you me and hayley walked to hayleys house to ask their mom if she could take us to giant so you could get a squishamellow, but really also so that we could get lemon extract, bc again, we are underage. this was the second time we were all three gonna get drunk and then hayley ended up just leaving.
+
+sam, you are a gaslighter. I see the green dot after every time I write a comment that makes you feel guilty as fuck, because you know Hayley is thinking "wait a minute, that's what I remember too." the longer you spend making dumbass posts as though "she doesn't know, she's replying to check if it's me, because she actually loves the comment so much" the more self soothing it is for you. to us, you just look like a dumbass. go ahead with the green dot
+
+> 6/3/2025 11:29:57 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/mvw30bs) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/mvvyedh)
+
+holy shit sam this is so unreal. we were born in 2004. I used to sleepover at your house. one time you, me, and Hayley, were all gonna get drunk together at your house. hayley ended up going home early but you and I got drunk and I slept over. that was one of a fuck ton of times we got drunk and I slept over at your house. you are such a gaslighter it's so nightmarish, obviously you're not telling Hayley "yes i invited an old man to get drunk with us, and stay over at my house with you." you must say "what? that never happened..." several times a week.
+
+stop telling hayley you're gonna "break me" and I'm gonna "confess." sam, we were born, in 2004.it is a fact. you have put all of your energy into making Hayley delusional and it's a pain in the fucking ass because this is going to give some day but you're making it take longer than it should. I should stop reminding you that no one is ever going to like you again if anything it's just causing you to try harder and harder at this
+
+> 6/3/2025 11:16:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2tunw/who_is_your_crush/mvw12qx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2tunw/who_is_your_crush/mvvywbf)
+
+let me also say I've talked about the fact that my existence is causing sam to ruin her sleep, and the reason she does that is another huge reason I assume the above. she knows I'm 20 so she knows she doesn't have to post on ask teen boys at 2, 3, 4, 5, or potentially 6am tonight, but she's going to now post between the hours of 2-6 because I wrote those numbers in a comment, and the more she stakes, the more she is convincing you she's terrified for you, even though she knows in reality there's nothing to be worried about. like I said it's a security theatre but the more devotion she shows to doing it the more it convinces you she's being honest and really believes in what she's telling you. in reality, her stakes lie in her reputation 
+
+trust your memories, verify my SSN, speak to everyone else who went to me and sams school. they'll all tell you the same thing, she is like trump, she will *still* tell you something basically akin to "it's a witch hunt." she is batshit and eventually you are going to have to just tell her "you're batshit" and make a break for it. you will know that unless you're psychotic you're not making a mistake and once you've actually done it you will be 1000% sure you didn't make a mistake. i love you hayley
+
+> 6/3/2025 11:02:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2tunw/who_is_your_crush/mvvywbf) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2tunw/who_is_your_crush/mvvwrgl)
+
+that's fucking gross. I'm in love with Hayley
+
+you are a nightmare of a person, you could not give less of a fuck
+
+hayley I could spend 24/7 doing this and all it's gonna do is cause her to accidentally slip up and show malice via that. she is never going to stop trying to keep you gaslit. she is going to take advantage of you and manipulate you and tell you you are making a horrible mistake when in reality never acting on this information by finding out whether or not sam is your emotional abuser would be making a horrible mistake. like I said there's is absolutely nothing I would put past her. she does not care at all and despite how fucked up it would be, I would guess she is going to pretend to be feeling seriously afraid for you while staying adamant she never lied to you regardless of any level or quality of evidence she's faced w, not because I think she is afraid for you but because I think it's the most likely thing to work for her and she does not give a single fuck
+
+gather as much evidence as you possibly can so you can tell yourself you're not insane, tell your therapist about this so she can also tell you you're not insane, and then gtfo. I would try to keep dropping her as brief as possible so she has less chance to make you question your sanity
+
+I love you
+
+> 6/3/2025 10:49:44 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/mvvwze1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/1l2ulx9)
+
+sam what is actually wrong with you
+
+hayley go find out for yourself she won't confess ever
+
 > 6/3/2025 6:13:47 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ok6f/whats_something_completely_legal_that_feels_very/mvulbsx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ok6f/whats_something_completely_legal_that_feels_very/mvuhm2q)
 
 holy fuck you are SUCH a dumbass sam. and i mean it, everyone is going to hate you for the rest of your life because you wanted to control hayley. this shit has nothing to do with society, im talking about YOU sam. read the username
