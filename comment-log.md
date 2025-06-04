@@ -1,3 +1,17 @@
+> 6/4/2025 2:47:29 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ynam/given_the_current_state_of_affairs_whats_keeping/mvwrm14) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ynam/given_the_current_state_of_affairs_whats_keeping/mvwqwr1)
+
+youre a gaslighter
+
+i used the word fearmongering about YOU, i would never fucking say that about the state of the country right now.
+
+> 6/4/2025 2:27:09 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2yapj/how_do_you_confess_something_big/mvwpdgw) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2yapj/how_do_you_confess_something_big/mvwo260)
+
+hey sam is this you
+
+well sam the problem is hesitation and avoidance. there is no question if "how," other than to get it out there. say it, as quickly as possible. once it's out in the air you won't be able to hesitate or avoid it any longer, and everything else you have to say will come to you. the question isn't really about "how to address it" it's how to get over the avoidance and the answer is to say it immediately when you start to feel this way so you don't have any time to hesitate
+
+this comment is not going to help. because this thread was only posted in another attempt to gaslight you, Hayley. obviously I know she wasn't genuinely trying to suggest this about herself, but rather just projecting about herself
+
 > 6/4/2025 2:06:38 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2xctm/what_song_has_you_speeding/mvwn3d0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2xctm/what_song_has_you_speeding/1l2xctm)
 
 weve been doing all this late night talking
