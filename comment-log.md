@@ -1,3 +1,13 @@
+> 6/4/2025 2:06:38 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2xctm/what_song_has_you_speeding/mvwn3d0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2xctm/what_song_has_you_speeding/1l2xctm)
+
+weve been doing all this late night talking
+
+bout anything you want until the morning
+
+now youre in my life,
+
+i cant get you off my mind
+
 > 6/4/2025 1:51:49 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwlefl) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwj243)
 
 alright well this is not funny it is deeply fucking disturbing
