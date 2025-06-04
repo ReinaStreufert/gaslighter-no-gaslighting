@@ -1,3 +1,15 @@
+> 6/4/2025 1:51:49 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwlefl) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwj243)
+
+alright well this is not funny it is deeply fucking disturbing
+
+sam you are an extremely bad person. you have tried to convince hayley i am developmentally impaired. according to you, i am not aa 20yo girl. instead, i am an old man, who is so impaired he might believe that "we all have clones." who does that sound like to you ?
+
+even after i point it out, you are still working as hard as you can to trick hayley into believing that they cannot trust their own self because they are unconsciously drawn towards pedophiles, and a character you designed to resemble a real life pedophile hayley was actually traumatized by. it is so goddamn fucked up, you dont give a single fuck.
+
+how long have you been doing crap like this sam. i did not think you had done anything even close to this until i remembered what you told me about sophie. sophie is a normal person, you are insane and not even you would bring a knife to school. you made that up to make sure, even though chances were i probably never would have, that me and sophie would never have more than passing interactions.
+
+so you have been hayley's best friend since childhood. during the time i knew hayley you purposefully caused a lot of problems in their life. i want to know if you have ever done anything like that before and hayley you should be thinking about that too. the level of fucked up this is, i feel that there is no chance there werent things before this.
+
 > 6/4/2025 1:36:44 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwjmt6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwi81b)
 
 you are such a fucking dumbass sam
