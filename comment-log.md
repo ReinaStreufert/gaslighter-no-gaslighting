@@ -1,3 +1,17 @@
+> 6/4/2025 3:32:31 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2zeyi/who_is_the_currently_unhappiest_person_on_planet/mvwwb53) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2zeyi/who_is_the_currently_unhappiest_person_on_planet/mvwvw54)
+
+sam I hope this is your real life account 
+
+I don't know anything about the people you posted with 3 days ago, but based on your performative activism, I am guessing they are all going to hate you pretty soon. I bet you're already trying to instill the idea hayley is a liar the closer things get to them finding out.
+
+the thing you made up about me, was so stupid. you can tell them whatever you want to about both of us, it's not like Hayley won't be able to prove you're the liar.
+
+like I said, I hope this is your actual account
+
+> 6/4/2025 3:21:36 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2yapj/how_do_you_confess_something_big/mvwv81b) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2yapj/how_do_you_confess_something_big/mvwuysf)
+
+holy fucking shit sam you are heartless as all fuck
+
 > 6/4/2025 2:47:29 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ynam/given_the_current_state_of_affairs_whats_keeping/mvwrm14) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ynam/given_the_current_state_of_affairs_whats_keeping/mvwqwr1)
 
 youre a gaslighter
