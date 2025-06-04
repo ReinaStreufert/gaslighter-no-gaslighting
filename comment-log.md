@@ -1,3 +1,11 @@
+> 6/4/2025 3:01:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3div0/what_was_the_dumbest_lie_you_believed_as_a_child/mw033iy) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3div0/what_was_the_dumbest_lie_you_believed_as_a_child/mvzzqtc)
+
+sam what is happening, this has to be about you, you know that you are the only one of us who read or even watched harry potter. you know that you were literally fucking obsessed with harry potter, and that I always thought it was annoying as fuck. if I heard that you you became one of those people who talks about "reality shifting" into hogwarts on tiktok I wouldn't have been surprised
+
+> 6/4/2025 2:51:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3csoe/what_is_something_ridiculously_small_that/mw00zc2) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3csoe/what_is_something_ridiculously_small_that/mvzyteh)
+
+oh my god we have been through this so many times and now that I know it's you posting everything I understand why. hayley does not care that I have a five inch dick. I didn't like this before because you were trying to make me think that they do. I still don't like it because you are trying to trick hayley into believing you are a human lie detector
+
 > 6/4/2025 2:39:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3b2hv/what_were_you_immune_to_as_a_kid_but_cant_handle/mvzygqg) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3b2hv/what_were_you_immune_to_as_a_kid_but_cant_handle/mvzqfsn)
 
 sam we met on the sixth grade camping trip. if this is supposed to be evidence hayley is an old man too. so can you please shut the fuck up ? stop acting like you never heard of GERD. we are twenty years old. you are a serious inconvenience to my life right now because you wont stop trying to confuse hayley
