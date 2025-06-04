@@ -1,3 +1,7 @@
+> 6/4/2025 2:39:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3b2hv/what_were_you_immune_to_as_a_kid_but_cant_handle/mvzygqg) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3b2hv/what_were_you_immune_to_as_a_kid_but_cant_handle/mvzqfsn)
+
+sam we met on the sixth grade camping trip. if this is supposed to be evidence hayley is an old man too. so can you please shut the fuck up ? stop acting like you never heard of GERD. we are twenty years old. you are a serious inconvenience to my life right now because you wont stop trying to confuse hayley
+
 > 6/4/2025 2:27:51 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3achp/whats_something_from_your_childhood_you_wish_you/mvzw2o1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3achp/whats_something_from_your_childhood_you_wish_you/mvzarnt)
 
 what the fuck even
