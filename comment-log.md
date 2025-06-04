@@ -1,3 +1,19 @@
+> 6/4/2025 1:36:44 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwjmt6) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2xgj7/if_you_could_anonymously_reveal_one_global_secret/mvwi81b)
+
+you are such a fucking dumbass sam
+
+i am dead right now
+
+> 6/4/2025 1:26:11 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2wfb1/if_your_life_was_a_movie_what_would_the_title_be/mvwidx5) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2wfb1/if_your_life_was_a_movie_what_would_the_title_be/1l2wfb1)
+
+my life is a movie directed by tarantino
+
+> 6/4/2025 1:14:22 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2wrb3/what_is_that_one_thing_which_you_will_never_do/mvwgxw8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2wrb3/what_is_that_one_thing_which_you_will_never_do/mvwcsuu)
+
+you literally sound exactly like logan. gross. stop gaslighting hayley
+
+edit: drinking pee? sam. what the fuck is wrong with you
+
 > 6/3/2025 11:44:52 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/mvw55r8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l2ulx9/what_was_your_oh_shit_im_old_moment/mvw30bs)
 
 let me add some context. you me and Hayley walked to hayleys dads house to get drinks bc we are all underage. later Hayley had to take a bath. then you and me got drunk, you were belting the lyrics to songs , I ended up getting way too fucking drunk and I'm p sure that you held my hair while I threw up.
