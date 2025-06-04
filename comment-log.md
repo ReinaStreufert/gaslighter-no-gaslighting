@@ -1,3 +1,15 @@
+> 6/4/2025 5:23:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3goky/what_in_life_has_you_excited_right_now/mw0wt34) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3goky/what_in_life_has_you_excited_right_now/1l3goky)
+
+i am so fucking excited for hayley to find out the truth
+
+> 6/4/2025 5:09:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3gyqx/whats_the_closest_you_ever_got_to_accidentally/mw0tz71) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3gyqx/whats_the_closest_you_ever_got_to_accidentally/1l3gyqx)
+
+when I overdosed on dxm
+
+the closest I got to dying was one of the times I tried to hang myself
+
+idk what this question is supposed to be suggesting sam
+
 > 6/4/2025 3:11:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3cnr0/whats_a_common_norm_you_dont_care_about/mw056kk) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3cnr0/whats_a_common_norm_you_dont_care_about/mvzt4mp)
 
 sam ten years ago we were ten years old
