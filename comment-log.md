@@ -1,3 +1,21 @@
+> 6/5/2025 5:48:40 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4bmli/how_do_you_keep_tension_with_a_girl_for_long_time/mw7n5li) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4bmli/how_do_you_keep_tension_with_a_girl_for_long_time/1l4bmli)
+
+wtf is wrong with you, you are such a gaslighter. me and hayley were besties. i told you never to tell them i had fallen in love with them. i was never going to ask them out literally ever. then they told me they had fallen in love with me too
+
+this is just blatant gaslighting, nothing happened the way you told them it did, and you werent even fucking there. you cannot tell hayley the choices they made on purpose were somehow made for them.
+
+stop trying to imprison your "friend"
+
+> 6/5/2025 5:33:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4b7ri/your_son_drains_the_entire_familys_life_savings/mw7k5z8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4b7ri/your_son_drains_the_entire_familys_life_savings/1l4b7ri)
+
+i am not a 40 year old man. you are such a goddamn clown sam
+
+> 6/5/2025 5:23:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4awjf/what_is_something_you_lie_about_regularly_why/mw7i61t) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4awjf/what_is_something_you_lie_about_regularly_why/1l4awjf)
+
+holy fuck sam this whole thread is such a projection
+
+stop stigmatizing mental health problems, why do you think this is going to ick out hayley, does it ick you out about yourself ? get help please holy shit
+
 > 6/5/2025 5:11:50 PM [Permalink](https://www.reddit.com/r/birthday/comments/1l3reyu/18/mw7fvn5) / [Context](https://www.reddit.com/r/birthday/comments/1l3reyu/18/mw7dec6)
 
 other memorable events for hayley to match up and prove I went to our school...
