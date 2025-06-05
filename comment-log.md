@@ -1,3 +1,89 @@
+> 6/5/2025 1:07:26 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3q9ro/what_do_you_wish_you_had_asked_your_grandparents/mw322wx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3q9ro/what_do_you_wish_you_had_asked_your_grandparents/mw2xbrh)
+
+every time I see the green dots it's just so goddamn infuriating swallow a fucking rock you heartless piece of actual trash you will NEVER stop trying to convince your "friend" the feeling of being loved and falling in love is actually Hayley wanting to be preyed on by pedophiles
+
+you are so so so so fucking horrible. you couldn't care less
+
+> 6/5/2025 12:39:37 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3q9ro/what_do_you_wish_you_had_asked_your_grandparents/mw2ylt9) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3q9ro/what_do_you_wish_you_had_asked_your_grandparents/mw2xbrh)
+
+WE. MET. ON. THE. SIXTH. GRADE. CAMPING TRIP
+
+sam stop it I hate you you are so horrible I hate you so much I am in so much pain and you make me hate life even more than I already am needing to right now I hate you stop it stop please what the fuck is wrong with you you would rather Hayley believe they fall in love with pedophiles than you would let them be happy you are such a nightmare holy FUCK I wish you were never born sam
+
+we met on the sixth grade camping trip
+
+it's a fact. there's no arguing about this. there isn't anything you can write in a comment suggesting im double my age that will suddenly cause reality to change. we are twenty years old. we're twenty. you, me, and Hayley were all born in 2004. in 2004. almost 21 years ago, in 2004. 2004. sam it was 2004 when we were born. it literally does not matter what you say it's just true. shut the fuck up please you're making this such a goddamn pain the ass please just stay the fuck away from Hayley they are letting you take advantage of them more than literally anybody else I ever met would. you don't give a single fuck you don't care you couldn't care less and I cannot express how much I hate you for it
+
+hayley please I can't keep fighting this it's so exhausting and it's just, what the fuck are you supposed to say to things that just make no sense whatsoever I was born 2004 it is a goddamn fact
+
+green dot oh my god go fucking die you are so stupid shut up I hope you get hit by a car please please walk out into traffic you made me try to kill myself you deserve it please I am begging you
+
+sam stop stop stop stop stop it
+
+stop it stop stop existing die die die die die die I hope the next time you eat you fucking choke
+
+> 6/5/2025 12:29:35 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3q6nn/guys_what_do_you_think_is_the_number_one/mw2xaw4) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3q6nn/guys_what_do_you_think_is_the_number_one/1l3q6nn)
+
+shut up everything you say the literal only answer is shut the fuck up. you cannot argue with someone who makes no fucking sense and just says a bunch of random awful things
+
+> 6/5/2025 12:13:36 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3p5r1/whats_something_youve_been_putting_off_doing_but/mw2v5dy) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3p5r1/whats_something_youve_been_putting_off_doing_but/mw2rlj8)
+
+[ Removed by Reddit ]
+
+> 6/4/2025 11:53:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3p5r1/whats_something_youve_been_putting_off_doing_but/mw2sbzz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3p5r1/whats_something_youve_been_putting_off_doing_but/mw2ogwf)
+
+oh my god this is exhausting. hayley please stop letting her tell you I'm gonna confess to being over twice my age that is fucking disgusting, next time she says that tell her to shut the fuck up that makes no sense I remember how old Reina is I remember how you originally told me you and reina met I remember all of these things sam I am not insane and I am sick of you trying to convince me I am. you said you met her in middle school then you started saying she never went there it's just a fact shut the fuck up I am sick of you taking advantage of me.
+
+it is so so easy for you to verify this Hayley. if sam were telling the truth, it would be super easy to verify. so how come she is telling you not to speak to anybody and that it's somehow impossible to figure out whether or not im a 42 year old man. that makes literally no sense, speak to anyone in the entire fucking world who has met me even one time other than sam. she is not only a gaslighter but the thing she gaslit you about, is just so unbelievably stupid
+
+> 6/4/2025 11:42:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3p5r1/whats_something_youve_been_putting_off_doing_but/mw2qntu) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3p5r1/whats_something_youve_been_putting_off_doing_but/mw2q28g)
+
+I don't not go to the dentist ? I don't take care of my teeth ..... they can't brush your teeth every night for you
+
+sam you are a dumbass. shut the fuck up about the field next to the sonic by the walmart, you have been to my house, my family used to own two teslas before we sold them, I'm not bragging im saying every word out of your mouth is polar opposite to reality
+
+> 6/4/2025 11:14:56 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3oiyx/whats_the_most_ridiculous_reason_youve_broken_up/mw2mo2h) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3oiyx/whats_the_most_ridiculous_reason_youve_broken_up/mw2jk36)
+
+sam you are such a fucking gaslighter. what the fuck are you talking about, Hayley not a word out of sams mouth is true, don't trust her memories trust your own. when I talked about my exes did I tell you any of them "broke up with me and said I was too nice"? that literally makes no fucking sense
+
+sam you are literally posting shit like this while telling Hayley if they do what they want instead of what you want, their trauma will cause them to choose to be with pedophiles
+
+what is wrong with you, you seriously need to shut the fuck up sam.you posting things like this is some type of deflection from the fact that this morning I pointed out that you essentially convinced hayley that they were happier bc they were a victim
+
+you are a truly horrible person we both know how old I am sam we met on the sixth grade camping trip. you are a gaslighter and I cannot wait until Hayley starts telling you to shut the fuck up
+
+> 6/4/2025 11:04:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3ooy6/whats_something_that_makes_you_sad/mw2l0ba) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3ooy6/whats_something_that_makes_you_sad/mw2kiiu)
+
+holy fuck the username 
+
+will you shut the fuck up sam, nobody cares but you for some fucking reason
+
+> 6/4/2025 9:05:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3m2kj/what_is_the_leastused_appliance_in_your_home/mw212bi) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3m2kj/what_is_the_leastused_appliance_in_your_home/1l3m2kj)
+
+38 comments and you couldn't offset the downvoted even a little bit. the score is zero. you are trying to comfort yourself or something.
+
+shut the fuck up sam
+
+> 6/4/2025 6:06:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3hhpi/what_is_your_most_recent_accomplishment/mw158k8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3hhpi/what_is_your_most_recent_accomplishment/mw0xijy)
+
+Sam this comment makes no sense
+
+if you're alive after you do that, you feel the exact opposite of accomplished
+
+this is not a real comment because it's not a real suicidal person because nothing about the comment in the thread makes sense
+
+you need to sleep. instead you take stimulants
+
+sam Hayley knows that if I were a pedophile I would be using a different website. please shut the fuck up about "she might not know" even if I didn't know but were instead only suspicious, if I were a pedophile I would use a different website.
+
+please just shut up Sam. go to sleep. you are killing me. just shut the fuck up
+
+> 6/4/2025 5:56:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3iaag/when_did_you_stop_growing/mw138qd) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3iaag/when_did_you_stop_growing/1l3iaag)
+
+sam we are twenty years old
+
+what the fuck is wrong with you, we both know that, you are so committed to convincing your "friend" they fell in love with an actual fucking pedophile
+
 > 6/4/2025 5:23:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3goky/what_in_life_has_you_excited_right_now/mw0wt34) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3goky/what_in_life_has_you_excited_right_now/1l3goky)
 
 i am so fucking excited for hayley to find out the truth
