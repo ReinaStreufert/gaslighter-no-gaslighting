@@ -1,3 +1,23 @@
+> 6/5/2025 4:04:43 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l48va1/whats_normal_now_that_wasnt_back_in_the_90s/mw71pbl) / [Context](https://www.reddit.com/r/AskReddit/comments/1l48va1/whats_normal_now_that_wasnt_back_in_the_90s/1l48va1)
+
+we met on the sixth grade camping trip. we were born on june 21st, 2004 within the same 24 hours. you are a gaslighter. all of these things are undeniable facts about reality that will never change
+
+sam i really am so horrified by you. hayley has all their life been trying to find things that make them happy. they are constantly growing and finding better and better things and reaching places that once felt imaginary to them.
+
+everyone does this but hayley started with a huge disadvantage and most people have a head start on them because the first place in the world they were exposed to, their homes, demonstrated and realized something that is better than what was first demonstrated for hayley.
+
+despite that you have worked as hard as you can to stunt this process because you are happier when you feel in control of hayley than you are when hayley does what makes them happiest and what they want to do. you actually convinced them that their first demonstration causes them to somehow go through this process backwards as though r/niceguys are right. typically, convincing a traumatized person that r/niceguy mentality is actually true and that they need to be controlled because doing what they want is the worst thing for them, is called white knighting.
+
+you dont have any complex of trying to "protect women" instead you are emotionally abusing hayley in a way i would liken most to munchausen by proxy
+
+there is no such thing as feeling cared for and loved by a pedophile trying to prey on you, and telling that pedophile that they felt somebody who apparently was actually a great friend was not a good friend and genuinely seemed like she didnt care as much. there is no such thing, being controlled cannot make you happier than being cared for and loved.
+
+sam, you are doing this for your reputation. you are probably exhausted by this point. hayley seems like they are going to offer you as much capacity as they have for you to take advantage of them. you seem committed to savoring every drop they give you until the very end. if you confess to hayley, i wont tell anyone what you did because hayley is more important than you losing all of your friends.
+
+the way this went for you i feel like youre already unlikely to try it again, and hayley is at risk with you which is more urgent than protecting people i dont know from hypothetical futures that for all i know will never happen
+
+hayley i would ask that if you agree to the same thing that you upvote this comment so sam know that. i dont expect it to help anything because she is unlikely to believe either of us will stick to our word about that. although i would
+
 > 6/5/2025 1:07:26 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l3q9ro/what_do_you_wish_you_had_asked_your_grandparents/mw322wx) / [Context](https://www.reddit.com/r/AskReddit/comments/1l3q9ro/what_do_you_wish_you_had_asked_your_grandparents/mw2xbrh)
 
 every time I see the green dots it's just so goddamn infuriating swallow a fucking rock you heartless piece of actual trash you will NEVER stop trying to convince your "friend" the feeling of being loved and falling in love is actually Hayley wanting to be preyed on by pedophiles
