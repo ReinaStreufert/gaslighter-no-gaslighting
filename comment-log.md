@@ -1,3 +1,37 @@
+> 6/5/2025 5:11:50 PM [Permalink](https://www.reddit.com/r/birthday/comments/1l3reyu/18/mw7fvn5) / [Context](https://www.reddit.com/r/birthday/comments/1l3reyu/18/mw7dec6)
+
+other memorable events for hayley to match up and prove I went to our school...
+
+we also in 8th grade took a trip to a chincoteague beach we took a bus there and stayed for several days. we stayed in this house beach housing complex thingy where everyone was roomed by gender, I was roomed with girls, bc I am one and I was not held back...you were not in a room with me I don't think, maybe idk tbh all I remember is us talking shit about tori and idolizing isis which was like half of our conversations in that friend group.
+
+we all did some activities collecting water samples or smth, we walked through this gross ass swamp for some reason, shit like that and there was this part we did in like a science lab where we were looking at organisms that live in the water under microscopes
+
+> 6/5/2025 4:59:45 PM [Permalink](https://www.reddit.com/r/birthday/comments/1l3reyu/18/mw7dec6) / [Context](https://www.reddit.com/r/birthday/comments/1l3reyu/18/mw364z4)
+
+oh my god sam shut the fuck up, I am twenty. I was 18 two years ago. I am in love with Hayley.
+
+these actually are girls in my age range you are finally catfishing me with people that if it weren't for the fact I'm in love with Hayley and the fact theyre literal fucking redditors that live nowhere close to me, that maybe I'd be into bc I am a 20yo lesbian
+
+this would not be to catch a predator, Sam. stop telling hayley I didn't go to our school you are an idiot all they have to do is stop trusting you when you tell them everyone at our school will agree with you when in reality everyone at our school will tell Hayley you lost your goddamn mind and that we all fucking met, every single one of us, met on the goddamn sixth grade camping trip
+
+all of us, I don't wanna hear it. we all took home friendship bracelets Sam. I know you remember that shit. I know you remember how everyone played that game where someone gets in the hammock and then someone else swings it is hard as they can and we played until we broke the hammock and it belonged to one of the teachers so she lectured us about being careful with other peoples things. I know you remember almost everyone else in our grade spending the whole time playing soccer and other sports while you and me hung out by the tents because we didn't give a fuck about sports. I remember everything you do, you don't have amnesia, you're a gaslighter 
+
+hayley please talk to people who went to our school
+
+> 6/5/2025 4:49:34 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4a3cw/whats_a_socially_acceptable_thing_that_secretly/mw7ba13) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4a3cw/whats_a_socially_acceptable_thing_that_secretly/mw7aaal)
+
+sam you are so stupid
+
+I am 5'8", I was writing that comment to tell them that most people don't give a fuck
+
+> 6/5/2025 4:26:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l48va1/whats_normal_now_that_wasnt_back_in_the_90s/mw76b0o) / [Context](https://www.reddit.com/r/AskReddit/comments/1l48va1/whats_normal_now_that_wasnt_back_in_the_90s/mw71pbl)
+
+this comment doesnt really work actually. the problem is that i cannot be in hayleys life if we dont tell other people because i am not a 40 year old man, and sam, you are the one who said i didnt go to your school. we wouldnt be able to hide what you did if we tried unless i pretended to be a 40 year old man or stayed away from hayley for the rest of my life which i am not going to do that unless they want me to.
+
+sam, you fucked up your own life so so horribly. as long as hayley was gonna eventually break free from being controlled by you, your reputation was bound to fall apart.
+
+shes never gonna confess hayley. you will have to find out for yourself. i love you
+
 > 6/5/2025 4:04:43 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l48va1/whats_normal_now_that_wasnt_back_in_the_90s/mw71pbl) / [Context](https://www.reddit.com/r/AskReddit/comments/1l48va1/whats_normal_now_that_wasnt_back_in_the_90s/1l48va1)
 
 we met on the sixth grade camping trip. we were born on june 21st, 2004 within the same 24 hours. you are a gaslighter. all of these things are undeniable facts about reality that will never change
