@@ -1,3 +1,33 @@
+> 6/6/2025 4:41:38 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4w8l8/what_is_the_one_thing_that_you_havent_done_yet/mwdq8pd) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4w8l8/what_is_the_one_thing_that_you_havent_done_yet/mwcdcgi)
+
+okay i done even know how to begin with this
+
+sam, there is no such thing as a 63 year old who tells people shes 20 and STILL hears "you look young for 20!!!"
+
+a 63 year old who looks young for 20. you are a goddamn clown
+
+shes never ever gonna confess hayley, the fact that she ever even a single time tried to suggest to you that i am \*tripple my fucking age\*, she has no limit. there is no limits. she absolutely fucking loves how much you let her take advantage of you. yo can see me hayley, this comment is literally impossible within reality. stop letting her take advantage of you please its so so so bad. it is literally impossible that i am 63, you need to talk to somebody else so badly.
+
+tell sam you wont keep listening to her unless she gets more people in your circle to look at pictures of me and tell you "yes sam is right she looks like a 63 year old man, there is no way she is lying to you."
+
+she will refuse, because she knows anyone with two eyes would say "she does not look even close to 63, there is no chance she is that old. sam are you lying to us ? i am actually really suspicious because the pictures you have together on your phone and on hayleys phone look like a teenage girl about hayley's age. if she looks super young for her age she could be maximum 30. there is not a chance whatsoever that she is 63"
+
+sam you cannot possibly tell hayley what im saying is untrue until you do exactly that. i already know you have not, you have convinced hayley to never speak a word in detail about this situation to a soul but you. otherwise this wouldnt be happening
+
+> 6/6/2025 4:29:24 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l52et6/what_is_one_thing_you_wish_your_parents_to_taught/mwdntzr) / [Context](https://www.reddit.com/r/AskReddit/comments/1l52et6/what_is_one_thing_you_wish_your_parents_to_taught/mwdmtfj)
+
+sam this is not a real thing. if your parents shame you for something youre gonna act on it when youre a child you care about their opinion more than anyone elses no matter how invalid it is
+
+you could not be worse at psychoanalysis. "all it did was make me messier" ? you are so stupid sam
+
+> 6/6/2025 4:01:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l50t0k/if_your_pet_could_leave_a_honest_review_about_you/mwdibjf) / [Context](https://www.reddit.com/r/AskReddit/comments/1l50t0k/if_your_pet_could_leave_a_honest_review_about_you/mwd9ngw)
+
+oh my god shut up if i were annoying and unfunny you wouldnt have to write these things
+
+> 6/6/2025 3:48:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l51jsi/whats_something_totally_legal_that_feels/mwdfo8d) / [Context](https://www.reddit.com/r/AskReddit/comments/1l51jsi/whats_something_totally_legal_that_feels/mwdf2v4)
+
+oh my god sam why do you think someone is irresistable to me because they have a goddamn trans heart in their avatar. you are an idiot, hayley fell in love with me, they know i get hit on in real life, you are not tricking them into thinking i want to be with an actual fucking redditor, they have eyes sam
+
 > 6/6/2025 3:37:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l50x8u/as_a_straight_guy_whats_the_gayest_thing_u_have/mwddjdi) / [Context](https://www.reddit.com/r/AskReddit/comments/1l50x8u/as_a_straight_guy_whats_the_gayest_thing_u_have/1l50x8u)
 
 sam wtf are you talking about. im not a straight guy, im a lesbian girl
