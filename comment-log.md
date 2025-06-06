@@ -1,3 +1,27 @@
+> 6/6/2025 12:59:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4xd1t/whats_the_biggest_turn_off_for_a_woman/mwch8lo) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4xd1t/whats_the_biggest_turn_off_for_a_woman/mwcggde)
+
+sam when have I ever talked about being "goth." you were the one who decided you were gonna be an e girl, did that for two years, and then decided you were done with being an e girl because it wasnt "in" anymore. I really feel like half the shit you post is some type of projection
+
+> 6/5/2025 6:58:44 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4cy8j/people_of_reddit_who_have_insomnia_what_is_it_like/mw7zwe8) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4cy8j/people_of_reddit_who_have_insomnia_what_is_it_like/mw7xlli)
+
+I don't have a guilty conscience about anything bc when I get one I confess quickly as fuck
+
+I didn't pick up my antibiotic early enough it's twice a day and so I'm taking the first dose tn. really not an excuse but. I just snorted one 5mg oxycodone  + took another 5mg oxycodone orally. so I just took twice my dose and I snorted half of it
+
+hayley, I have real life problems. I tell you what they are. I do not tell you what you want to hear I can't bring myself to do that about anything for any significant length of time. if sam were trying to protect you, she would be warning you about problems that exist. she is not trying to protect you, she is trying to control you, so instead she told you that I lied about my age among a fuck ton of other made up things. nothing she has ever said to you about me since I suspect march 2023 has been made up, actually
+
+edit: also I premeditated this. my dad gives out my pills. I kept one in my drawer....so it was a secret for a few hours. I'm sorry Hayley I love you and also I'm not significantly intoxicated and they only gave me 7x 5mgs total before this so I promise I won't get addicted to opiates
+
+> 6/5/2025 6:46:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4cy8j/people_of_reddit_who_have_insomnia_what_is_it_like/mw7xlli) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4cy8j/people_of_reddit_who_have_insomnia_what_is_it_like/1l4cy8j)
+
+30-35% of US adults have insomnia 
+
+shut the fuck up sam
+
+> 6/5/2025 6:00:24 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4bmli/how_do_you_keep_tension_with_a_girl_for_long_time/mw7pe1i) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4bmli/how_do_you_keep_tension_with_a_girl_for_long_time/mw7n5li)
+
+[deleted]
+
 > 6/5/2025 5:48:40 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4bmli/how_do_you_keep_tension_with_a_girl_for_long_time/mw7n5li) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4bmli/how_do_you_keep_tension_with_a_girl_for_long_time/1l4bmli)
 
 wtf is wrong with you, you are such a gaslighter. me and hayley were besties. i told you never to tell them i had fallen in love with them. i was never going to ask them out literally ever. then they told me they had fallen in love with me too
