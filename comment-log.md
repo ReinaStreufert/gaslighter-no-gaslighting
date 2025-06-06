@@ -1,3 +1,19 @@
+> 6/6/2025 2:22:30 PM [Permalink](https://www.reddit.com/r/PublicFreakout/comments/1l4vf73/reporter_asked_republican_representative_troy/mwcyotu) / [Context](https://www.reddit.com/r/PublicFreakout/comments/1l4vf73/reporter_asked_republican_representative_troy/mwcetmn)
+
+omg.
+
+sam i am 20yos, if i were a 40yo man that you introduced to hayley when they were 14 and then i somehow convinced them we "fell in love" when they were 17, that would make me a pedophile...
+
+trump is a pedophile we been knew this already a bunch of girls have accused him already and he was "good friends" with epstein and everyone knew he went to the parties. yes a lot of people went to the parties but if i remember right some of the allegations had already come from victims at the parties
+
+elon musk is also a pedophile because he has a history of accusing people of being pedophiles when he wants control over how somebody is making him look, like that one diver. he is probably right about trump but only by coincidence. sam this is why i mention the fact you were not likeable enough to find anyone who likes you too until you were older than both me and hayley. you are trying to trap hayley in their oldest friendship, and started making a point to do so as soon as they grew apart and found someone who was more compatible with them as a person than they are with you. all of that is suspicious as fuck to me
+
+> 6/6/2025 2:15:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4xhu1/what_are_you_currently_addicted_to/mwcx7ly) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4xhu1/what_are_you_currently_addicted_to/mwcso1t)
+
+there were never this many iasip references on reddit
+
+anyway im only addicted to weed right now. and im dependent on adderall xr 10mg to function i think....i feel like when i stopped taking adderall before i just go depressed as all fuck
+
 > 6/6/2025 1:45:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4yctq/when_did_you_realize_you_were_lonely/mwcqxhz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4yctq/when_did_you_realize_you_were_lonely/mwcp34b)
 
 sam can you shut the fuck up, me and Hayley spent 24/7 together , stop trying to convince them that's not exactly what I fucking want. this comment is gonna also just factually untrue loneliness is a feeling and I have been lonely everywhere with everyone my entire life until I met Hayley
