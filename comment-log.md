@@ -1,3 +1,35 @@
+> 6/6/2025 3:37:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l50x8u/as_a_straight_guy_whats_the_gayest_thing_u_have/mwddjdi) / [Context](https://www.reddit.com/r/AskReddit/comments/1l50x8u/as_a_straight_guy_whats_the_gayest_thing_u_have/1l50x8u)
+
+sam wtf are you talking about. im not a straight guy, im a lesbian girl
+
+also, i literally have zero male friends. i have not had more than one male friend at a time since i was eleven. you know this, sam.
+
+you are an actual clown. this is unlike anything i have ever said in my whole life sam, which is exactly why youre writing it here.
+
+everything you write is a contradiction of what you and hayley can both see clear as daylight. the more they are exposed to the light of day the more terrified you become because you know all of this falls apart as soon as they decide to take back their own mind and trust themself. you are trying to comfort yourself. thats why there are 29 comments on this thread with 3 upvotes...writing more doesnt trick hayley more, if anything it just shows how desperate and terrified you are about them realizing you make no sense
+
+> 6/6/2025 3:26:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l50p8z/why_are_you_single/mwdbga1) / [Context](https://www.reddit.com/r/AskReddit/comments/1l50p8z/why_are_you_single/mwd854d)
+
+im not single, sam, me and hayley are waiting for each other because we fell in love
+
+sam, i dont even know how to say this. hayley is prettier than you, given that you are already telling them im lying about my age which should be plenty, you also tell them i am not a lesbian in reality, which cannot possible be for any other reason than youre jealous of the fact people usually think hayley is prettier than you...and so when you post things like this, i already know to take it as a compliment...if you felt that i were obviously not attractive, you wouldnt feel such an urge to suggest it to hayley in a reddit comment. when you write this, it tells me you are super worried because you think hayley will perceive the opposite unless you write ick on reddit
+
+"i think we have different definitions of self care" i dont know sam i am gonna sound like a total bitch for a second but i feel like you say things like this because you are bitter about the fact i am "#blessed" for lack of a better way to put it and i constantly get complimented on my skin when i dont care for it at all. its confusing to me bc its like, presumably if you had my genetics you would take advantage of it too.
+
+sam you write all the time trying to make a weird thing out of the fact i had two relationships that started as close friendships. i dont know why because its obviously a coincidence. before me and hayley became friends, you and me had already spent more time total together than me and hayley had spent by the time i fell in love with them. if you think i see other girls in some type of icky 2 dimensional way where i just randomly decided ive fallen in love with friends, how come i never "fell in love" with you, or with caitlyn who i used to hangout with all day every day, or with any of my other friends?
+
+i couldnt help falling in love with hayley. the fact that i fell in love with them, it is personal. its about hayley.
+
+> 6/6/2025 3:13:50 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l50lr7/what_was_normal_when_you_were_a_kid_but_would/mwd8xs0) / [Context](https://www.reddit.com/r/AskReddit/comments/1l50lr7/what_was_normal_when_you_were_a_kid_but_would/mwd7wjk)
+
+you are such a clown, there is no arguing with a goddamn clown
+
+hayley go find out for yourself
+
+> 6/6/2025 3:13:18 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l50lr7/what_was_normal_when_you_were_a_kid_but_would/mwd8u0x) / [Context](https://www.reddit.com/r/AskReddit/comments/1l50lr7/what_was_normal_when_you_were_a_kid_but_would/mwd7flp)
+
+holy fuck sam we were born ON THE SAME DAY WITHIN 24 HOURS OF EACH OTHER
+
 > 6/6/2025 2:22:30 PM [Permalink](https://www.reddit.com/r/PublicFreakout/comments/1l4vf73/reporter_asked_republican_representative_troy/mwcyotu) / [Context](https://www.reddit.com/r/PublicFreakout/comments/1l4vf73/reporter_asked_republican_representative_troy/mwcetmn)
 
 omg.
