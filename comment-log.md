@@ -1,3 +1,19 @@
+> 6/6/2025 5:06:24 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l5398r/former_lesbians_what_made_you_go_back_to_men/mwdv246) / [Context](https://www.reddit.com/r/AskReddit/comments/1l5398r/former_lesbians_what_made_you_go_back_to_men/1l5398r)
+
+sam what in the fuck, so now you acknowledge that i was always a girl, was never homophobic, and have been a lesbian my entire life. just so that you can say i "switched back"?? wtf. sometimes people think theyre bi and then realize they werent. nobody fucking switches from exclusively men to exclusively girls and then back to exclusively men
+
+this is unbelievably absurd atp. i love you hayley and the reason that i was so so afraid that this was all just conspiracies, is because sam never stops contradicting herself. and its confusing because if she had told specific lies, then why would she say something contradicting something literally less than 10 minutes ago
+
+its like, okay shes a liar and i get that by this point because the age thing is so consistent....but can we please acknowledge something. she is the worst liar of all fucking time. she wrote "hes afraid of women" and then "she was a lesbian until recently" in the same ten minutes. her lies are also painfully unrealistic. 63 hayley ? we both know that is *actually impossible*. whenever my therapist is trying to convince me that you are gullible he goes to the guitar thing. and im like i mean yeah. its just that i cant see how *anyone* could believe the things she says to you. they are simply not possible
+
+and so then i get afraid its conspiracies. if i were in your shoes, i would have dropped sam months and months ago, i wouldnt have even needed evidence. why would you let someone tell you ten different stories in the same day and keep pretending theyre not a liar hayley. if they tell you things that contradict their own self, as facts, she is a liar. its just an actual fact. theres no debating it...you cant be doing literally anything other than lying if your story is constantly contradicting itself.
+
+> 6/6/2025 4:55:57 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l53565/what_is_your_most_irrational_fear/mwdt1ye) / [Context](https://www.reddit.com/r/AskReddit/comments/1l53565/what_is_your_most_irrational_fear/mwdsq7u)
+
+i am afraid of my own self? i am afraid of all of my friends and have been since i was eleven?
+
+you look like a goddamn clown sam, you have literally nothing left to say
+
 > 6/6/2025 4:41:38 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4w8l8/what_is_the_one_thing_that_you_havent_done_yet/mwdq8pd) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4w8l8/what_is_the_one_thing_that_you_havent_done_yet/mwcdcgi)
 
 okay i done even know how to begin with this
