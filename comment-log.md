@@ -1,3 +1,25 @@
+> 6/6/2025 1:45:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4yctq/when_did_you_realize_you_were_lonely/mwcqxhz) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4yctq/when_did_you_realize_you_were_lonely/mwcp34b)
+
+sam can you shut the fuck up, me and Hayley spent 24/7 together , stop trying to convince them that's not exactly what I fucking want. this comment is gonna also just factually untrue loneliness is a feeling and I have been lonely everywhere with everyone my entire life until I met Hayley
+
+> 6/6/2025 1:21:30 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4xaj7/what_are_some_things_people_often_realize/mwcly82) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4xaj7/what_are_some_things_people_often_realize/mwcjfnv)
+
+anyway yesterday I purposefully abused my prescription oxycodone which is notoriously the most psychologically addictive opiate there is next to when they used to have pharmaceutical quality heroin (diacetylmorphine.)
+
+you are not trying to protect Hayley or warn Hayley from anything. you are not the customer telling the cashier to "duck for cover bc that person is gonna shoot you" you're the customer telling the cashier "that person who totally isn't just staring off blankly into space over there, is gonna shoot you if you don't give me all the money"
+
+you have nothing to warn them about because I don't tell Hayley what they want to hear, so they've already been warned by me myself. if you thought somebody who did what I did last night would end up being a very negative influence in hayley's life you would be putting your energy into trying to explain that to them in a way they will understand. not controlling them but if you genuinely believe they would be better off making a different choice than the one they are going to make, you can try make them see that because if you genuinely believe that, there may be something they're missing that would cause them to agree with you. and if they still disagree than you know what you would do if you were in their shoes, you're not them though.
+
+you are not doing anything in the realm of this bc you're just a gaslighter. you hear me in recordings and you freak out because I am just the person that I am, and you have spent the last three years telling Hayley made up things about me so that they think of me as an entirely different person than the one I am.
+
+you are spending all of your energy on suggesting this same old ick personality of some type of really really nerdy guy who takes pride in knowing almost nothing about literally everything, and does not know how to shut the fuck up about things other people aren't interested in. because that is someone that Hayley would not even be interested in at all. and you want to control them, not to warn them
+
+> 6/6/2025 1:09:34 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4xaj7/what_are_some_things_people_often_realize/mwcjfnv) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4xaj7/what_are_some_things_people_often_realize/mwcg4bg)
+
+I have to be real this is cute, not because of the references to ..... yeast. or the fact it's a microbe or something. just because it's kinda cute. there is a [different screenshot](https://www.reddit.com/r/MadeMeSmile/s/PXTiGfyXfi) it reminds me of that has nothing to do with trying to crossover the big bang theory that I think is even cuter
+
+sam, holy fuck, I know how to program, get the fuck over it. when did I talk about microbes. what is happening. these are all your weird ass associations. I don't even talk about programming in conversation w people who don't gaf anyway. you are the only one of us who doesn't care to adjust to what other people do and don't care about in conversation
+
 > 6/6/2025 12:59:07 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1l4xd1t/whats_the_biggest_turn_off_for_a_woman/mwch8lo) / [Context](https://www.reddit.com/r/AskReddit/comments/1l4xd1t/whats_the_biggest_turn_off_for_a_woman/mwcggde)
 
 sam when have I ever talked about being "goth." you were the one who decided you were gonna be an e girl, did that for two years, and then decided you were done with being an e girl because it wasnt "in" anymore. I really feel like half the shit you post is some type of projection
